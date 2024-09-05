@@ -1,0 +1,159 @@
+"One hundred years ago today, the Oceanview Foundation of the Preservation of Wildlife was founded by the Monterey family." The tour guide's dull droll began. He was wearing a pair of grey glasses that were straight out of an 80s Nerd look. The dark suit and loafers only mildly helped the look. 
+Their guide sneezed. It was the most eventful thing that had happened the entire trip.
+As they traveled further down the old dirt road, Mike groaned. This was *supposed* to a fun family trip. His sister certainly seemed enthused. She was right up there with the tour guide, taking diligent notes, hanging on the guide's every boring word. 
+But that was what he had learned to expect from his sister. Every aspect of her was infuriatingly perfect. Perfect blonde curls that made the boys turn and stare, perfect grades that made the teachers do roughly the same thing, and that perfect smile that could light up a room. Little Miss Perfect was having the time of her life.
+Maybe she thought the guide was hot. That was the only explanation he could think of for how she could tolerate the mindnumbing boredom of going through a wildlife reserve. They hadn't even let them see the cool stuff, like lions or tigers or rhinos, just stupid birds like the South African Parakeet and the North Blue Whatever-The-Hell-It's-Name-Was. He'd even asked if the South African Parakeet had been taken from a reserve in South Africa because maybe a stolen bird would be kind of cool, but no, it was purchased by the Monterey family and moved here with the explicit permission of the head of the South Africa National Wildlife Reservation because apparently she was a friend of the Monterey family. 
+He couldn't believe that this trip could even make a conflict of interest sound boring through sheer proximity.
+In frustration, he stretched the hem of his curduroy and black jacket as far as they would go. His basketball shorts stretched slightly as he tapped his feet on the ground.
+His short blonde hair, not remotely in the league of his sister's, fluttered slightly in the wind. Maybe he'd get a bug in it. That might be cool.
+So he did the only reasonable thing there was to do: Mike wandered off. Nobody would even know he was gone. There was no harm done. He'd be back in ten minutes, easy. Just something to take his mind off of things. 
+
+The dirt road was easy to follow, and just as easy to get off of. He found a line of rocks, and followed it. Branches crunched underneath his feet as the wind finally blew into his face. Every step of his sneakers made a satisfying thump against the grassy ground as he ascended the small hill.
+He wasn't stupid enough to actually shout "Woo hoo!" and draw a load of attention to himself, but it was how he felt.
+Five minutes later, he was at the edge of a large forest, with trees that stretched skyward at least thirty feet. 
+"Now THIS is what I'm talking about!" He laughed to himself. 
+He took off running through the forest, fifty feet then a hundred. His sneakers pounded against the dirt, crushing the grass beneath his feet and making a satisfying crunching sound.
+Then he found something. Or, actually, the better would be 'ran into' something. His face made first contact with a new alien-
+It...was a stone wall. He collapsed backward onto his...well...back.
+"What the heck?" He asked himself, still rubbing his nose. Probably broken, based on the blood he now tasted dripping from it. 
+He finally looked forward long enough to see the massive structure ahead of him. It looked like the old chapel he used to go to every Sunday before Mimi died back in '02. But of course it couldn't be. That church was three states and ten cities away. 
+"Dude...that is SO cool!" He shouted. 
+Then he saw the vines, the cracked walls, and the...gaping hole in the roof. 
+"It's held for this long, it'll hold as long as I'm careful." He assured himself. 
+He took a careful step forward. He wasn't stupid. The thing his Mimi had called the 'Altar' hadn't been used since before he was born, by the look of it. 
+The place was brightly lit due to the gaping hole in the roof letting plenty of sun in, but besides that, there were no lights inside the church itself. It was damp and musky, definitely abandoned for decades. This was like a movie. He was in a movie! Every footfall echoed across the space twice over. Water dripped from he guessed was an old bathroom. 
+And yet the floor was bone-dry.
+The walls were old, the paint chipped to hell and back. What had probably once been cream white walls were now yellow with mildew, certain sections already black. In the far corner of the room, next to an iron trash can, were the badly rusted remnants of a chandelier. Not electric, either. Metal, shattered glass, and broken crystal. He saw dried wax leftover and some of the crystal.
+He slowly crossed the pews to get to the altar. Right as he put his weight onto a tile, it shattered into a thousand pieces, collapsing under his weight. 
+That wasn't what freaked him out, though. 
+What freaked him out was that he couldn't see the bottom of the hole that tile had just made. 
+"Be careful. Got it. Loud and clear." He laughed nervously.
+His voice echoed back at him twice, the room taunting him for being arrogant enough to come in here.
+He found himself thinking about what kind of church made its floor out of tile. This place was old. Very old. And maybe, just maybe, when this place had been first built, it hadn't been a church, not initially.
+"I'll be fine..." He assured himself. "I just can't do anything stupid."
+So he did the only reasonable thing there was to do: Mike stepped very carefully across the tiles, never fully putting his weight on any one tile. 
+After several long minutes, he finally reached the altar. Then he heard a crunch. Like a tile hitting concrete. Wait. 
+That hole went THAT deep? His legs shaking, he searched the altar for some kind of record as to what this place had been.
+His fingers found leather. He pulled. What fell into his hands was a leather notebook that had to be older than him.
+He opened the pages. He recognized the Latin script from the old hymns his Mimi used to sing at church. He kept turning. More hymns. More Latin. Until fifty pages and several more minutes later, it changed. 
+"I, Reverend Ramsey Burns, have begun this journal as I have begun the questioning of everything I have ever stood for. Because whatever the nature of my work has been until now, the Lord has had nothing to do with it." Mike read. 
+Mike kept reading. The entries became more and more concerned, introducing Latin words he'd never even seen before. 
+It wasn't until twenty pages in that he recognized one of the Latin phrases. It meant Pig Butcher. It was something his parents had freaked out *their* parents with, some fake dark ritual that didn't do anything besides produce a bit of smoke and red light. He'd seen a science video explaining the chemical reaction that caused the results.
+Then it hit him like a ton of bricks: What if all the previous weird Latin phrases he'd been reading were the names of rituals, just ones he'd never heard of? Ones that...weren't crappy pranks?
+"Oh my God...what if nobody ever told me about them because they're real?" He whispered to himself. He kept reading. 
+He kept doubling back, piecing together little bits of Latin. Demon's Ichor. Hell's Breath. Virgin Mary's Hymn. And suddenly he really could read some of these names. This stuff was...horrifying. Every horror movie didn't even come close. This was the kind of thing that Hollywood directors got death threats for even attempting to write into a script. His fingers became shaky.
+He stopped at Cavern Rot and Mouth of Hell.
+The page was entirely composed of Latin script. Like Reverend Ramsey Burns didn't know how to write English anymore. But the style had changed too. It was cold, practical, informal. This wasn't Reverend Ramsey Burns writing anymore. This was someone completely different. 
+The entire page being in Latin didn't scare him anymore. It's contents did.
+"I, Reverend Ramsey Burns, have begun this journal as I have begun to doubt my life's work. I am ashamed of the terrible things I have done. Of only one thing I am certain: There is no God here, and there is no God in the place I am going." He read, translating pieces and pieces of the Latin script into English. 
+It was getting hard to read. It was dark now. 
+Hadn't it been daylight when he'd gotten in here? 
+He looked up. The moon hung high in the sky.
+"Oh my God my sister is going to kill me!" He shouted, and ran across the fragile tiles as fast as he could, journal in hand. 
+The moment his foot pounded against a tile, it shattered underneath him. 
+His way out had just became a race against the clock. As he jumped to each tile, it shattered beneath him. Ten jumps later, he landed on the stairs, and watched as the entire altar, and four of the pews, fell into oblivion.
+He looked back. Then he heard it. The creaking sound of rock being pulled apart. He ran out the double doors. The entire building collapsed in on itself within seconds, windows shattering under the force.
+"I need to do some searching online, if I can get home alive." He whispered.
+He attempted to walk the way he'd came, but the place was so dark that after a few feet he hit a tree. 
+"And right now that's...." He laughed nervously, "...a pretty big if."
+Every few feet, he'd hit another tree. Branches raked against his skin. All the nocturnal animals howled in the distance. The moonlight beat down him. He was sweating bullets now. He kept running. He could feel blood running down his arms from the scrapes, but he had no choice besides to go in the direction he'd came from. He didn't know this forest. All he could do was head straight and pray.
+It felt like hours. 
+Tree after tree, scrape after scrape, several a branch to the face, until eventually he felt himself climbing that same small hill, face bloodied, and knew he was close. 
+He left the clearing, deeply disturbed by what he'd just read.
+But there was nobody here. The exact same dirt road, but his family had moved on. Because of course they had. He'd been gone for hours. There was probably a search party out there somewhere looking for him right now. 
+He now understood exactly why that dirt road had been made so easy to follow. Not just for tourists. But for stragglers.
+For people like him.
+So he did the only reasonable thing: Mike followed it.
+The road was long, but he was desperate. He hiked what felt like miles, turn after turn, bend after bend.
+Nobody. Not a single person. 
+Finally, the words began to sink in.
+*I might die out here.* 
+Death had always been a vague idea of the end, but now it was far too real for comfort. He had no food, no water, no real shelter. And he was stuck in the middle of a wildlife reservaion after visiting hours. With how much his family had learned to tune him out over the years...did they even realize he was gone?
+For the first time in his entire life, Mike Christopher Langley was completely terrified. Not horror movie terrified, not sitting on a couch watching with popcorn hiding under pillows terrified, but actually, really terrified. 
+His heart was racing. His lungs fought to breathe.
+*Hang on...am I...actually having a panic attack?* 
+He fought to take a breath, then the next, then the next.
+"Don't...freak...out.." He wheezed like an asthmatic.
+*I'm definitely freaking out.*
+He dropped to the ground wheezing. The grass felt like a thousand needles pressing him into him, like a bed of nail he'd had a the terrible luck of accidentally falling onto. His lungs refused to expand, even as he pushed them to the brink. His breath sped up, short and shallow breaths consuming his every thought.
+He felt his head hit the wood of a fence, the gate creaking open, as he fainted right then and there. Everything went black.
+
+When he woke again, he was...still there. It was still late at night. He had no way of telling how long it'd been. All there was left to do now was stay alive until someone found him.
+"Hey! Somebody! I'm lost! Please, somebody help me!" He shouted.
+And nothing. He heard absolutely nothing. He suddenly felt incredibly grateful that he'd been taken through the section that only had birds in it. The stupid South African Parakeet couldn't tear his guts out like any lion or tiger could.
+With nothing left to do, he opened the journal again, and started reading where he'd left off. It took him a few minutes to acclimatize to the Latin again, but pretty soon he was reading just as quickly as he'd been reading before.
+It hadn't gotten any less horrifying though. He'd arrived at the last three pages. But he couldn't read them. They were completely in Latin, but that wasn't a problem anymore. Half the words were covered by bloodstains.
+At first, he thought his arms had bled all over the journal. Then he realized if that had been the case it would've bled through several pages. No, this had been there when the journal had first been written. 
+That wasn't a comforting thought.
+"I, Reverend Ramsey Burns, have become disgust- by what I have- not going to- God is- Instructions for Bloody Mouth of Hell-. One young virgin-" Mike stopped reading. He didn't want to know what a Bloody something-something Mouth of Hell was, or how to make one.
+What he wanted was to burn this book. What he wanted was to forget about all of this. What he wanted was for this to be yet another boring family trip that didn't involve cults or dark rituals or abandoned churches. The only time he wanted to see hymns was in Mimi's little chapel.
+But that wasn't going to happen, and he knew it. And now he had a choice to make. He could maybe give this journal to a museum for people crazier and smarter than him to figure out what this all meant, trusting that when the church had collapsed in on itself everything in there had been destroyed along with it...or...
+Or he could go back down there and make sure what died down there so many decades ago stayed dead.
+
+Mike sat there, staring at the bloodstained pages of the journal, the words echoing in his mind like a twisted chant. The rational part of him—what little was left—screamed to run, to take this book, toss it into the nearest bonfire, and never look back. But a darker curiosity gnawed at him, one that made his hands tremble as he held the leather-bound tome.
+
+If he walked away now, he could pretend this never happened. He could hand the journal over to someone else, let them deal with whatever horrors were hidden in those pages. But why would things go his way now? He was stranded in the middle of a reserve and nobody knew where he was. He couldn't depend on good luck. He couldn't depend on the authorities right now.
+The only person on Earth he could depend on was himself. So that was what he was going to do. 
+After all, if he didn't do something, who would?
+He stood up, knees shaking, and took a deep breath. The air was cold and wet, clinging to his skin like the mist in a bad dream. The moonlight flickered through the trees, casting long, twisted shadows across the ground. He could still feel the rough wood of the fencepost against his back, the gate slightly ajar as if inviting him back into the darkness.
+He knew what he had to do. He couldn't leave that place, not without knowing for sure that whatever was in that church was gone—forever.
+Mike glanced around, trying to get his bearings. The dirt road stretched out before him, but now it felt more like a lifeline than a path. If he was going to make it back to that church, he needed to be smart about it. His sister and the rest of the tour group had to be out there somewhere. But for now, he had to focus. He had to finish what he started.
+He turned around and started back down the road, his feet dragging as he forced himself to move. His legs felt like they were made of lead. His face was completely drenched in blood from the broken nose. 
+*Okay. Priorities, Mike. First, make sure you don't bleed out. Wash your face, clean your wounds.*
+Every step felt heavier than the last, the weight of what he was about to do pressing down on him like a physical force. The journal was tucked under his arm, its pages fluttering slightly in the breeze. He didn't dare open it again. Not yet.
+He ripped off a section of his shirt and wrapped it as tightly as he could around his heavily bleeding arm, then did the same thing to the other arm with another section. If he'd paid more attention to that survival skills class, maybe he'd know more about what to do, but he couldn't think about that now. Regret wouldn't stop his heart from dumping every liter of blood in his body out of the holes in his arms and face.
+*Now to clean those wounds.* 
+He looked towards the horizon, wiping the blood off of his face with the scrap of fabric that now was his shirt. He couldn't see a thing in the dark. A wolf howled in the distance. He began to sweat again. Then, he realized it.
+*Hearing. I can't see, but I can hear.* 
+Mike closed his eyes as they were of no use to him anyway, and opened his ears, listening for the sounds of the wilderness around him. A parakeet squawking, birds chirping, a branch swaying in the wind. And people actually found the sound of the wilderness peaceful?
+Then...the sound of a wave hitting a shoreline. Water.
+"Let's go!" He shouted, excited beyond belief. He ran in the direction the sound had come from. He smiled wide. He didn't even care that he was getting THIS excited over something as basic as running water. A hundred hours of video games hadn't ever managed to thrill him as much as this was.
+Within about ten minutes, he found himself at the edge of a small lake. He looked at it closely. The reflection of the moonlight in the water was wavy...which meant...*The water is moving!*
+Something-something-moving-water, something-something-safe-to-drink was all he could really remember, but that was good enough. As long as it didn't kill him, he didn't really mind.
+So, like a total animal, he dunked his face in the lake water and drank. It tasted like dirt. He didn't care. 
+It was only after he'd drank several helpings of lake water, that he realized how incredibly thirsty he'd been before. A combination of adrenaline, fear, and an unhealthy helping of blood loss had suppressed it before, but now that he was here, he was absolutely famished. It tasted better right now than ten gatorades.
+He drank more water in the next five minutes than he probably had in the last five weeks. Eventually, once he was fighting the urge to puke, he stopped. 
+The water had washed the blood off of his face, but probably also introduced dirt into his cuts. Not ideal, but at least the blood was gone.
+
+The walk back to the church felt like it took hours, the trees looming over him like silent sentinels. But finally, he saw it—the crumbled remains of the building, now little more than a pile of stones and broken tiles. The moon cast an eerie glow over the ruins, making them look almost peaceful. Almost.
+Mike swallowed hard and took a step forward, the crunch of debris under his sneakers startlingly loud in the stillness. He picked his way through the rubble, carefully avoiding the larger pieces of stone that had fallen in the collapse. The air was thick with dust and the smell of mildew, a nauseating combination that made his stomach churn.
+
+He reached the edge of the hole where the altar had once stood and peered down. The darkness below was impenetrable, a void that seemed to stretch on forever. He couldn't see the bottom, but he could feel the cold air rising up from it, like a breath from something that should have stayed buried.
+
+With trembling hands, Mike opened the journal to the last few pages. The bloodstains were still there, stark against the yellowed paper. He didn't want to read the words again, but he knew he had to. If there was something—anything—that could help him understand what had happened here, it would be in these pages.
+
+He scanned the Latin text, his eyes flicking over the familiar phrases. "Mouth of Hell." "Demon's Ichor." "Virgin sacrifice." The words were jumbled, disjointed, like a madman's ramblings. But then he saw it—a single sentence that made his blood run cold.
+
+"To seal the gate, one must make a final offering."
+
+Mike's breath caught in his throat. The gate…that had to be what the altar was, or at least what it had become. And if this "final offering" was the only way to close it, then…
+
+His eyes darted to the hole in the ground. The darkness seemed to pulse, as if something down there was waiting—hungry.
+
+No. He couldn't. There had to be another way. But the journal was clear—there was no other way. The Reverend had tried everything else, and in the end, he'd only managed to delay the inevitable. If Mike walked away now, he knew that whatever was down there would eventually find a way out.
+
+His hand tightened around the journal, the leather cool and slick with sweat. He could feel the weight of it, the history, the evil that had seeped into its pages. This was it. The end of the line.
+
+With a deep breath, Mike made his decision.
+
+He tore out the last few pages, the ones covered in blood, and crumpled them in his fist. The words meant nothing to him anymore. They were just fragments of a nightmare, and he was done being afraid.
+
+He threw the journal into the pit.
+
+For a moment, nothing happened. The book disappeared into the darkness, swallowed by the void. Mike held his breath, waiting for something—anything—to happen. But the pit remained silent, the air still.
+
+And then, slowly, the ground beneath him began to rumble. The stones shifted, the debris sliding toward the hole as if pulled by some unseen force. Mike stumbled back, nearly losing his balance as the earth cracked and groaned. The pit was closing, the darkness receding as the stones fell into place, sealing it off forever.
+
+Mike didn't wait to see the end. He turned and ran, his heart pounding in his chest as the ground trembled beneath him. The church was collapsing, the walls crumbling in on themselves as the last remnants of whatever had been inside were buried for good.
+
+He didn't stop running until he was back on the dirt road, the ruins of the church far behind him. The moon was still high in the sky, the night as silent as ever. But now, the silence felt different. It was no longer oppressive, no longer filled with the weight of something lurking just out of sight.
+
+Mike doubled over, gasping for breath. His hands were shaking, his whole body trembling with exhaustion and fear and relief. But he was alive. And whatever had been in that church was gone.
+
+He straightened up, looking back one last time at the distant treeline. He didn't know what he would tell his sister, or his parents, or anyone else for that matter. But he knew one thing for sure—he would never forget what had happened here.
+
+And he would never, ever come back.
+
+With one last deep breath, Mike turned and started walking back toward the entrance of the wildlife reserve, hoping that this time, someone would be there to meet him.
+
+The road was long, but for the first time, he felt like he knew where he was going.
