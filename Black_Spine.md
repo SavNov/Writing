@@ -1,1 +1,0 @@
-Returning home a hero, Davis is bored by his education system. However, when a new crime-spree begins with a new name, not everything is as it seems. Someone is stealing suits and making them into criminals, and they're threatening Davis. Along with everything else he's sworn to protect.
