@@ -1,51 +1,97 @@
 "One hundred years ago today, the Oceanview Foundation of the Preservation of Wildlife was founded by the Monterey family." The tour guide's dull droll began. He was wearing a pair of grey glasses that were straight out of an 80s Nerd look. The dark suit and loafers only mildly helped the look. 
 Their guide sneezed. It was the most eventful thing that had happened the entire trip.
 As they traveled further down the old dirt road, Mike groaned. This was *supposed* to a fun family trip. His sister certainly seemed enthused. She was right up there with the tour guide, taking diligent notes, hanging on the guide's every boring word. 
+
 But that was what he had learned to expect from his sister. Every aspect of her was infuriatingly perfect. Perfect blonde curls that made the boys turn and stare, perfect grades that made the teachers do roughly the same thing, and that perfect smile that could light up a room. Little Miss Perfect was having the time of her life.
+
 Maybe she thought the guide was hot. That was the only explanation he could think of for how she could tolerate the mindnumbing boredom of going through a wildlife reserve. They hadn't even let them see the cool stuff, like lions or tigers or rhinos, just stupid birds like the South African Parakeet and the North Blue Whatever-The-Hell-It's-Name-Was. He'd even asked if the South African Parakeet had been taken from a reserve in South Africa because maybe a stolen bird would be kind of cool, but no, it was purchased by the Monterey family and moved here with the explicit permission of the head of the South Africa National Wildlife Reservation because apparently she was a friend of the Monterey family. 
+
 He couldn't believe that this trip could even make a conflict of interest sound boring through sheer proximity.
+
 In frustration, he stretched the hem of his curduroy and black jacket as far as they would go. His basketball shorts stretched slightly as he tapped his feet on the ground.
+
 His short blonde hair, not remotely in the league of his sister's, fluttered slightly in the wind. Maybe he'd get a bug in it. That might be cool.
+
 So he did the only reasonable thing there was to do: Mike wandered off. Nobody would even know he was gone. There was no harm done. He'd be back in ten minutes, easy. Just something to take his mind off of things. 
+
 
 The dirt road was easy to follow, and just as easy to get off of. He found a line of rocks, and followed it. Branches crunched underneath his feet as the wind finally blew into his face. Every step of his sneakers made a satisfying thump against the grassy ground as he ascended the small hill.
 He wasn't stupid enough to actually shout "Woo hoo!" and draw a load of attention to himself, but it was how he felt.
+
 Five minutes later, he was at the edge of a large forest, with trees that stretched skyward at least thirty feet. 
+
 "Now THIS is what I'm talking about!" He laughed to himself. 
 He took off running through the forest, fifty feet then a hundred. His sneakers pounded against the dirt, crushing the grass beneath his feet and making a satisfying crunching sound.
+
 Then he found something. Or, actually, the better would be 'ran into' something. His face made first contact with a new alien-
+
 It...was a stone wall. He collapsed backward onto his...well...back.
 "What the heck?" He asked himself, still rubbing his nose. Probably broken, based on the blood he now tasted dripping from it. 
+
 He finally looked forward long enough to see the massive structure ahead of him. It looked like the old chapel he used to go to every Sunday before Mimi died back in '02. But of course it couldn't be. That church was three states and ten cities away. 
+
 "Dude...that is SO cool!" He shouted. 
+Okay, maybe he *was* stupid enough to shout and draw attention to himself.
+
 Then he saw the vines, the cracked walls, and the...gaping hole in the roof. 
 "It's held for this long, it'll hold as long as I'm careful." He assured himself. 
+
 He took a careful step forward. He wasn't stupid. The thing his Mimi had called the 'Altar' hadn't been used since before he was born, by the look of it. 
+
 The place was brightly lit due to the gaping hole in the roof letting plenty of sun in, but besides that, there were no lights inside the church itself. It was damp and musky, definitely abandoned for decades. This was like a movie. He was in a movie! Every footfall echoed across the space twice over. Water dripped from he guessed was an old bathroom. 
+
 And yet the floor was bone-dry.
+
 The walls were old, the paint chipped to hell and back. What had probably once been cream white walls were now yellow with mildew, certain sections already black. In the far corner of the room, next to an iron trash can, were the badly rusted remnants of a chandelier. Not electric, either. Metal, shattered glass, and broken crystal. He saw dried wax leftover and some of the crystal.
+
+He felt himself being watched. He turned around, but saw no one.
+
 He slowly crossed the pews to get to the altar. Right as he put his weight onto a tile, it shattered into a thousand pieces, collapsing under his weight. 
+
 That wasn't what freaked him out, though. 
+
 What freaked him out was that he couldn't see the bottom of the hole that tile had just made. 
+
 "Be careful. Got it. Loud and clear." He laughed nervously.
+
 His voice echoed back at him twice, the room taunting him for being arrogant enough to come in here.
+
 He found himself thinking about what kind of church made its floor out of tile. This place was old. Very old. And maybe, just maybe, when this place had been first built, it hadn't been a church, not initially.
+
 "I'll be fine..." He assured himself. "I just can't do anything stupid."
+
 So he did the only reasonable thing there was to do: Mike stepped very carefully across the tiles, never fully putting his weight on any one tile. 
+
 After several long minutes, he finally reached the altar. Then he heard a crunch. Like a tile hitting concrete. Wait. 
+
 That hole went THAT deep? His legs shaking, he searched the altar for some kind of record as to what this place had been.
+
 His fingers found leather. He pulled. What fell into his hands was a leather notebook that had to be older than him.
+
+"There's no way…" He said, unable to believe his own eyes.
+
 He opened the pages. He recognized the Latin script from the old hymns his Mimi used to sing at church. He kept turning. More hymns. More Latin. Until fifty pages and several more minutes later, it changed. 
+
 "I, Reverend Ramsey Burns, have begun this journal as I have begun the questioning of everything I have ever stood for. Because whatever the nature of my work has been until now, the Lord has had nothing to do with it." Mike read. 
+
+30 feet behind him, something went *thud*. He immediately turned around to look, but there was nothing, just like there'd been nothing before. He was starting to really not like this place, and he hadn't even read the super creepy leather-bound journal yet.
+
 Mike kept reading. The entries became more and more concerned, introducing Latin words he'd never even seen before. 
+
 It wasn't until twenty pages in that he recognized one of the Latin phrases. It meant Pig Butcher. It was something his parents had freaked out *their* parents with, some fake dark ritual that didn't do anything besides produce a bit of smoke and red light. He'd seen a science video explaining the chemical reaction that caused the results.
+
 Then it hit him like a ton of bricks: What if all the previous weird Latin phrases he'd been reading were the names of rituals, just ones he'd never heard of? Ones that...weren't crappy pranks?
+
 "Oh my God...what if nobody ever told me about them because they're real?" He whispered to himself. He kept reading. 
+
 He kept doubling back, piecing together little bits of Latin. Demon's Ichor. Hell's Breath. Virgin Mary's Hymn. And suddenly he really could read some of these names. This stuff was...horrifying. Every horror movie didn't even come close. This was the kind of thing that Hollywood directors got death threats for even attempting to write into a script. His fingers became shaky.
+
 He stopped at Cavern Rot and Mouth of Hell.
 The page was entirely composed of Latin script. Like Reverend Ramsey Burns didn't know how to write English anymore. But the style had changed too. It was cold, practical, informal. This wasn't Reverend Ramsey Burns writing anymore. This was someone completely different. 
+
 The entire page being in Latin didn't scare him anymore. It's contents did.
 "I, Reverend Ramsey Burns, have begun this journal as I have begun to doubt my life's work. I am ashamed of the terrible things I have done. Of only one thing I am certain: There is no God here, and there is no God in the place I am going." He read, translating pieces and pieces of the Latin script into English. 
+
 It was getting hard to read. It was dark now. 
 Hadn't it been daylight when he'd gotten in here? 
 He looked up. The moon hung high in the sky.
@@ -115,7 +161,7 @@ It was only after he'd drank several helpings of lake water, that he realized ho
 He drank more water in the next five minutes than he probably had in the last five weeks. Eventually, once he was fighting the urge to puke, he stopped. 
 The water had washed the blood off of his face, but probably also introduced dirt into his cuts. Not ideal, but at least the blood was gone.
 
-The walk back to the church felt like it took hours, the trees looming over him like silent sentinels. But finally, he saw it—the crumbled remains of the building, now little more than a pile of stones and broken tiles. The moon cast an eerie glow over the ruins, making them look almost peaceful. Almost.
+The walk back to the church felt like it took hours, the trees looming over him like soldiers. But finally, he saw it—the crumbled remains of the building, now little more than a pile of stones and broken tiles. The moon cast an eerie glow over the ruins, making them look almost peaceful. Almost.
 Mike swallowed hard and took a step forward, the crunch of debris under his sneakers startlingly loud in the stillness. He picked his way through the rubble, carefully avoiding the larger pieces of stone that had fallen in the collapse. The air was thick with dust and the smell of mildew, a nauseating combination that made his stomach churn.
 
 He reached the edge of the hole where the altar had once stood and peered down. The darkness below was impenetrable, a void that seemed to stretch on forever. He couldn't see the bottom, but he could feel the cold air rising up from it, like a breath from something that should have stayed buried.
