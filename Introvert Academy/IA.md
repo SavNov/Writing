@@ -60,4 +60,43 @@ The message did not answer, did not explain itself, just waited there, staring b
 His mouse hovered over the two options.
 | **Yes** | **No** |
 He allowed his mouse to hover over **No**.
+"Nothing good can come out of this. Nobody who can put a message on my screen like that is someone I should be talking to." He chided himself, scoffing at the message.
+Whatever this was, it was nothing good. He shouldn't be doing this...
+He allowed his mouse to hover over **Yes**.
+Impossible sounded interesting. He was a living anomaly. He wanted to see what this "Introvert Academy" thought was so impossible. He wanted to see what this challenge was.
+**No**.
+It was completely outside his comfort zone. It was completely insane. There was no guarantee he wasn't getting hacked. A simple Trojan. He'd click the link, see a drive-by download, be asked to open it in order to see his challenge, and while the timer ran and he solved some kind of strange puzzle, it would encrypt every single file on his system.
+It was an incident report waiting to happen. His hard drive would be wiped.
+**Yes**.
+"Oh well, that's what backups are for." He smiled to himself.
+He clicked **Yes**.
+A timer revealed itself. 48 hours on the clock. It wasn't ticking yet. The message was simple enough.
+*Click the timer, and your time starts.*
+"If I commit to this, I'm going to scare the hell out of both my parents." He said into the open air. A beam of light landed on his keyboard as the sun shifted positions in the sky, like a message from on high. He got a notification on the bottom right corner of his screen from his browser.
+*That is a risk you are going to have to take if you wish to proceed.*
+"So you either have incredible timing or you're listening in." He said. "My microphone isn't enabled."
+He received no response.
+His mouse hovered over the timer.
+"I hate you." He muttered.
+He clicked the timer. And then several things happened all at once. 
+48 hours became 47 hours, 59 minutes, and 59 seconds. Then 58, then 57. He found himself staring at a menu. There was no logo, no fancy font, just a photo of a man staring into the camera from somewhere in the Middle East. He immediately recognized the style of the shot. A 90s era Polaroid, but somehow with none of the JPEG artifacts that usually came from scanning the photo into a catalog over the years. It had been ripped straight from analog film to modern PNG. He analyzed it more closely. The man had a face indicative of the Middle East, but he'd seen enough photos to narrow it down further. The eyes and jaw were reminiscent of Kazakhstan. He was smiling, with shoulders relaxed and eyes unguarded. So he felt comfortable and safe, maybe among friends. Maybe this was a family photo. Except there was no family in the background. He was alone. A sea of merchants and shopkeepers were behind him, yes, but he stood alone in the middle of a sandy clearing. From his shadow, it was about three in the afternoon, which was strange, as most places would already have closed down by now for a third round of prayers.
+"Not religious then. Or at least, not Muslim. Or maybe I'm not as good at reading shadows as I think I am." He muttered.
+He noticed the panel on the left side of his screen. He clicked a button labeled *Archive*, and a little menu popped up. It was full of PDFs, hundreds of them. He looked at the file size, and gauged that if the images were of the same quality as the photo, then those PDFs were 80 pages a piece. They were numbered instead of named. He realized they all lead with dates. As he sorted through them, he saw they began in January of 1991, months before the Soviet Union had even fallen, and ended in August of 1995. He finally opened one, and immediately understood why the message had said there would be no turning back.
+The front cover had the logo of the Central Intelligence Agency front and center, and beneath it the warning that the document wasn't just classified but also for internal reference only. This wasn't a formal report. This wasn't even a mission record. There was only one agent even named on it. Agent Jonathan M. Cramer. He opened up Tor Browser in a new window alongside his regular browser and searched the name. Nothing came up. He searched for CIA missions and operations conducted starting in January of 1991, and filtered for ones ending in 1995, and got nothing again.
+He smacked his own face.
+"Well, duh, it's still classified." He groaned at his own incompetence. He looked at the timer again. Had it really been ten minutes already? He immediately searched through other entries.
+*Classified.* His brain paused at that word.
+*Congratulations, Aidan Travis. You just committed treason!*
+Figuring there was no longer any point being subtle about it, he asked the question bluntly.
+"Am I being recruited into a terror sect? The Holcaust did happen. It was bad. And the Jews are not ruling the world. Sorry to burst your bubble, dude, preserving the white race through marrying your cousin doesn't make you some kind of hero, just really inbred."
+He got a notification.
+*Ha. Ha.*
+So it either wasn't a Neo-Nazi terror sect, or he'd found the one Neo-Nazi on earth who wasn't insecure.
+He wondered if he could get his sentence commuted from execution to community if he agreed to become a CIA informant. Probably not.
+So what now?
+He looked through the documents again. He searched for more on this Agent Jonathan Cramer. And finally the man in the photo had a name. placeholder1. The photo in question had been taken by Agent Cramer under the alias Maxwell Giant, right before he'd bought p1 drinks and they'd talked throughout the night. p1, though somehow it didn't surprise him, was a murderer. At least, that was why Cramer had gone for a drink with him. American support in the region was crumbling as the Soviet Union took its last few breaths, and the country, Turkmenistan, was already feeling abandoned. Taliban leadership was in its infancy. Proud Muslim fighters protecting these countries against the oppression of Communism, just as Ronald Reagan had intended. Freedom Fighters. Of course, then Reagan had stabbed them in the back right as the Soviet Union had began to leave the region.
+The freedom-loving Americans had done nothing as the warlords had come in and made the desert their own playground.
+p1 had murdered his own wife for her last name. Cameron. The Americans had betrayed them, and every smile had enraged him just a little bit more. Cramer had gotten that drink, both to stabilize p1 and keep an eye on him. They didn't fully understand the Taliban's methods yet. Yet p1 was a perfect fit, so if they were going to learn anything, keeping an eye on p1 would be a remarkably effective way to do it.
+p1 would go on to kill hundreds more for the Taliban's ideology. The whole story should've horrified him. Instead, he found himself fascinated. To kill his wife over her last name. Short-tempered, impulsive.
+*You weren't just betrayed by the Americans leaving. You were heartbroken.*
 
