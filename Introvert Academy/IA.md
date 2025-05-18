@@ -99,4 +99,71 @@ The freedom-loving Americans had done nothing as the warlords had come in and ma
 p1 had murdered his own wife for her last name. Cameron. The Americans had betrayed them, and every smile had enraged him just a little bit more. Cramer had gotten that drink, both to stabilize p1 and keep an eye on him. They didn't fully understand the Taliban's methods yet. Yet p1 was a perfect fit, so if they were going to learn anything, keeping an eye on p1 would be a remarkably effective way to do it.
 p1 would go on to kill hundreds more for the Taliban's ideology. The whole story should've horrified him. Instead, he found himself fascinated. To kill his wife over her last name. Short-tempered, impulsive.
 *You weren't just betrayed by the Americans leaving. You were heartbroken.*
+[Time Skip]
+After 47 grueling hours, he finally stepped back from the monitor, his hands literally aching with exhaustion. He must have had liters of sweat running down his neck.
+"Holy hell..." He said weakly, his mind still not quite able to comprehend that it was all over. Or...not over, but at least done with. He'd been up for 24 hours straight. His dad was going to kill him. But right now none of that mattered. He'd done it. He'd solved the puzzle. The message greeted him from the other end of the monitor.
+**Welcome To Introvert Academy, Aidan Travis. And Congratulations.**
+**What You Have Just Accomplished Is No Easy Feat.**
+"No kidding..." He muttered. Right now, he never wanted to so much as look at a keyboard ever again. His mind had never been worked so hard before. He leaned back, eventually tipping over his chair by accident, but he was so tired he didn't care. He just laid on the ground, back straight, letting the moment wash over him. "I need a moment. No secret messages. You heard me earlier, so I know you can hear me now."
+For the first time in his entire life, his mind had been worked so hard that for about twenty minutes it just ceased functioning entirely. He had no thoughts. Just twenty minutes of utter, complete mental silence. Afterwards, he found himself muttering about if that was what meditation was supposed to be like. Just total mental calm. It felt...amazing, actually. If that was what the monks were after, he couldn't blame them. And then he crashed. Hard.
+Awake for 24 hours straight, most of which were spent at peak mental strain, and now finally able to rest. The moment he closed his eyes, the next 18 hours were just...gone. He didn't even dream, he was that mentally tuckered out. His brain lacked the resources to weave his newest memories into streams of consciousness.
+Finally, he woke up feeling the most refreshed he'd ever felt in his life. He was smiling as he...awkwardly crawled out of bed and...wait.
+*I wasn't in bed before. Somebody moved me.*
+*Probably mom. It's fine.*
+*Does that mean she saw-*
+"So you're finally awake." A voice said. Not his mom's, not his dad's. He looked up.
+"Izzy?" He asked, stunned into silence for a good ten seconds.
+Different clothes, different hair style, same girl. She was in a college polo and jeans like she'd just finished teaching a college class.
+"What are you- how are you-" He tried once, then tried twice to speak coherently, but the words just wouldn't compute.
+He gave up.
+"Hi." He greeted.
+"Hello." She answered, smiling.
+A beat passed.
+"You have questions." She said.
+He stared at her like *duh*.
+"I believe that this particular answer should satisfy all of them." She said. "Welcome to the Academy, Aidan."
+His mind stopped working.
+Then it sputtered to life again as he realized that—did, in fact—answer all of his questions. She wasn't a random newbie. She wasn't a girl next door who'd just moved in and knew how to skateboard. She was...a recruiter. Or maybe a spokesperson. Whatever. She was here to watch him, see if he had what it took to be in whatever this Academy was.
+He looked at the toned muscles, the way she wore her clothing to be baggy to hide what was underneath. The absolute certainty in her gaze, like he was no threat to her. And the way she instinctively balanced on the floorboard beneath her without really thinking about it to make as little noise as possible.
+"How many belts?" He asked, though he didn't really think about how strange of a question that was until about a second later. She stiffened for just a moment, like the question startled her...and made her feel uneasy.
+*I hate profilers...* She muttered under her breath, then straightened again.
+"Ten. Working on turning my eleventh over." She said, forcing a smile.
+"Eleventh over to what?" He asked, even though he knew it was a stupid question the moment the words left his mouth. There was really only one way she would've answered that.
+"To black, of course." She said, sounding slightly proud in that moment. Her smile became a confident grin.
+She had ten black belts. Because of course she did.
+"Are you...a member?" He asked. She held his gaze. She was clearly a bit ashamed of the answer she was about to give.
+"No, but I might as well be."
+"What would've happened if I'd failed?" He asked.
+She thought for a moment, stroking her chin.
+"You'd would've gotten a congratulatory message, and a link to a wonderful little messageboard where you'd communicate with your fellow alumni. Given puzzles to solve, stuff that most people can't handle." She said.
+"Why would you- oh." He said, putting the pieces together in real time. The exam, which now that he thought of it made more sense than calling it a challenge, was only given to people who already had abilities far exceeding most people in a given set of fields. Abilities that bordered on superhuman. Even if their answer wasn't entirely correct, they were still useful. And if his was anything to go by, it wasn't like they were about to explain to their friends that they'd been exposed to thousands of classified documents and may have committed treason just to 'look cool'. They would keep it a secret. Tell their families it was a bounty site for hard problems, which probably wasn't far off.
+"So...I'm assuming I didn't fail?" He said.
+"You successfully replicated the investigative efforts of 4 years of work by seven top CIA foreign intelligence operators who *specialize* in Middle Eastern relations, well, *specialized*, in...48 hours. Yeah, I'd say you did remarkably well." She said.
+That set of words did not compute.
+"Wait...those documents...were all they had?" I asked. "With the limited resources involved—well, limited is a relative term—I assumed you were deliberately obscuring information to amplify difficulty."
+"You were able to learn and master the mind, beliefs and philosophy of p1 better in 48 hours than those agents did in 4 years. You predicted his movements precisely." She said.
+"You are really going to stroke my ego like this?" He rolled his eyes.
+"I am not stroking your ego, Aidan Travis, I'm trying to impress upon you why you ended up with me at your door instead of a link to a chat group." She said, shooting him a glare that made him immediately shrink.
+"You at my- wait, where are my parents?" He asked, his mind finally started to think about more immediate concerns.
+"Signing a series of utterly meaningless consent forms to both leave a paper trail and assure that the Academy is a credible academic institution they can feel comfortable sending their child to. As well as...well..." She said, finishing with a sigh. "Yes, stroking their egos."
+"Okay...how did you obtain those very classified documents I just spend 48 hours staring at?" He asked.
+"Christopher has had a backdoor into the CIA internal records database for years now. They keep finding it, he keeps patching another way in. He finds it quite fun, I'm told." She answered.
+He didn't bother trying to ask who Christopher was.
+"How long does it take him to find another way in, usually?" He asked.
+"Oh, usually about three days." She said, grinning. "Don't worry about it. In a couple of hours, you're going to meet him."
+"The others get a forum, I get a college campus." He said. "I suppose I get Doctorate level work in religious studies and psychology to look forward to?"
+She frowned for a moment.
+"Of course not. If a Doctorate in Psychology and Religous Studies was all it took to solve problems like these, then those people would be doing them. They arrive at your door when even those people can't solve them."
+"So what exactly IS this...academy?" He asked.
+"I'm glad you asked." She said. "Let's let the grown-ups handle the paperwork while I buy you lunch."
+The grown-ups handled the paperwork while she bought me lunch.
 
+She explained plenty of things to me. The Academy, which is what they called it from the inside, was a bit more than just a chat group.
+She'd neglected to mention that getting to the lunch place required hopping into a blacked-out SUV that she apparently knew how to drive and traveling roughly seventy miles to a burger joint where I met up with her friends in what had to be the most normal social interaction of my life. Izzy rolled down his window so he could see the others.
+There were five, in total, not including Izzy. There was Jamie, who looked like Jamie, there was Christopher, who looked like Christopher, there was Emma who looked like Emma, there was Alex, who looked like Alex, and there was Robin, who looked like Robin.
+Christopher was attacking what looked like a double stack with mustard, ketchup, mayo, pickle and whatever else would help him meet his caloric intake for the day. He looked up at Aidan, and grinned.
+"So we are not Neo-Nazis, and you are not being recruited into a terrorist sect." Christopher announced.
+"How very reassuring." He found himself muttering.
+"Jamie's not even- nevermind, not going to go there." Christopher attempted, then retracted.
+"You just went there." Jamie noted very artistically. "Thanks."
+The words sounded measured, practied and compounds like even a sentence like that was hard to string together.
