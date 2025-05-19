@@ -161,9 +161,76 @@ The grown-ups handled the paperwork while she bought me lunch.
 She explained plenty of things to me. The Academy, which is what they called it from the inside, was a bit more than just a chat group.
 She'd neglected to mention that getting to the lunch place required hopping into a blacked-out SUV that she apparently knew how to drive and traveling roughly seventy miles to a burger joint where I met up with her friends in what had to be the most normal social interaction of my life. Izzy rolled down his window so he could see the others.
 There were five, in total, not including Izzy. There was Jamie, who looked like Jamie, there was Christopher, who looked like Christopher, there was Emma who looked like Emma, there was Alex, who looked like Alex, and there was Robin, who looked like Robin.
-Christopher was attacking what looked like a double stack with mustard, ketchup, mayo, pickle and whatever else would help him meet his caloric intake for the day. He looked up at Aidan, and grinned.
+Christopher was attacking what looked like a double stack with mustard, ketchup, mayo, pickle and whatever else would help him meet his caloric intake for the day. He looked up at Aidan through the car window, and grinned.
 "So we are not Neo-Nazis, and you are not being recruited into a terrorist sect." Christopher announced.
 "How very reassuring." He found himself muttering.
 "Jamie's not even- nevermind, not going to go there." Christopher attempted, then retracted.
 "You just went there." Jamie noted very artistically. "Thanks."
-The words sounded measured, practied and compounds like even a sentence like that was hard to string together.
+The words sounded measured, practiced and composed like even a sentence like that was hard to string together.
+Finally, he stepped out of the back of the SUV, opening the door and sliding through.
+A girl lunged at him, and before he had enough time to scream, she-
+-kissed him, on the lips, with an excited passion. He blushed heavily at the intimacy of it, until she stepped back.
+He met her eyes.
+"I knew you would like that." She said softly, looking like the cat who ate the canary.
+$THE_LINE
+He stared at her.
+"How did you-" He asked, then his mind worked.
+*I hate profilers.* Izzy had muttered when he asked how many belts she had, like she'd already met one and had not enjoyed the experience. Based on...recent events...this girl was the profiler in question.
+"Oh. So you are the profiler." He realized.
+She grinned as she took a generous step back. He had a feeling that she'd wear that grin come hell or high water.
+"Profiler, avid study of serial killers, and as of recently, med student." She announced like she wore every single one of those labels with pride.
+"Emma is our profiler. She was the Academy's first recruit, and also..." Izzy explained, but he finished her sentence without really thinking about it.
+"...has sociopathic tendencies. Got it." He said.
+That had been his first kiss. He had the nasty feeling that Emma had both known and was counting on that. He was starting to hate profilers too.
+"You...you're a profiler too." She said, like it wasn't much a question as it was a part of which she hadn't noticed before, as if she'd just discovered that there was an emblem on his shirt. "Interesting."
+His mind was still fuzzy from that kiss. He knew that she knew that.
+She made no attempt at not looking crazy. She sniffed his shirt.
+"You showered recently. That would be..." She sniffed again. "Roughly two days ago, maybe three. Was Izzy something to do with that?"
+It was unusual to meet someone so completely unconcerned with looking weird and just a bit mental.
+"No, I was exhausted from the skatepark." He said.
+Her eyes widened just a sliver as she took another step back. Then she eyed Izzy.
+"Somebody had fun." She muttered.
+Izzy glared daggers.
+"Skated." Izzy growled. "Since when do you care about boys so much?"
+Emma studied her for a few seconds, then shrugged.
+"Of course the Olympian probably was an amazing skater the second she picked up the board." Emma scoffed. But then he saw that smile again.
+This girl wasn't angry at all. She just enjoyed chaos.
+"I sense we will have a long and healthy friendship." She smiled at him. "Though if you just want to kiss me again at some point, that can also work."
+He finally sat down at the table next to Alex, who looked deep in thought, so he figured the boy wouldn't disturb him. He was right. Alex was staring a hole into a draft, a frown on his face like he didn't quite like what he saw in it.
+A waitress greeted him.
+"Hi, welcome to Joey's. Is this your first time here?" She asked, with a deeply polite tone.
+*Middle class restaurant. There are newcomers, and there are regulars, and she wants to sort me into a category to see how I should be treated. There is a social hierarchy here.*
+His mind backfilled information. She was wearing a red cocktail dress like a uniform, wasn't even carrying a menu and none had been offered at the table because if you were coming here you already knew what they served or had been brought here by someone else who did. This was just as much a private club as it was a burger restaurant.
+He looked at the building. Brick and mortar, and old, probably not a franchise. Just a single location with a very local, very loyal clientele who provided enough business that they'd never needed to bother with advertisement.
+"No, but it's been a while." He said, trying to sound confident. Izzy blinked. "Cannot remember what it was called, but it was your best selling burger. Do you still offer it? I usually got it without mustard, but maybe that's changed."
+She paused for a moment, fidgeting with hem of her dress.
+"You want a Joey's Old Major." She offered.
+A test. *Are you really an oldie, or are you just bluffing?*
+"No, that doesn't sound right." He countered, pushing back just a little bit. "House Club?"
+"House Club Deluxe is what we call it now. Great to have you back." She smiled, more genuinely this time, convinced she was serving someone who either made six figures or knew someone who did very well.
+"So what's on it now? You changed the name, so I'm guessing you changed the burger." He asked.
+"Cheese, lettuce, tomato, ketchup, no mustard, relish and salt." She listed off.
+"Ahh...forgot about that. No relish either. I'd just managed to bury that memory of that first time." He sighed.
+She vanished into the main restaurant.
+They all stared at him.
+"Your cheeks aren't burning..." Emma teased, "but your pants definitely are."
+"Emma, you better watch out." Izzy warned, but more playful. Emma scoffed.
+"Nobody lies better than I do. Don't even go there." Emma seemed proud of that fact.
+"You guys come here often?" He found himself asking. Emma shrugged.
+"Sometimes. Not often. It's like seventy miles away." She said.
+*Seventy miles.*
+"Izzy asked you to meet her here, because it was halfway in between." He realized. "Who drove?"
+Jamie raised her hand.
+"Aye." She answered, like it was just another tuesday for her.
+"And...how old are you?" He found himself asking.
+"Diciassette." She answered swiftly.
+He raised an eyebrow.
+"17." Alex translated, then went back to his writing.
+"Both of you-" He almost said, but his mind filled in the gap before he could finish his sentence.
+*The art prodigy answers in Italian. With her expertise, she probably thinks in Italian more easily than English. Maybe Alex was a quick study of the language because of this.*
+"-nevermind." He finished his own sentence. "I get it now."
+The waitress came back with his burger on a literal silver platter. She placed it before him with a practiced ease, gingerly placing fork on left side and knife on right. *That must be proper dinner etiquette.* He was, of course, not remotely in a tax bracket high enough to care about etiquette, but he also understood that this was an additional test. If he started chowing down like an animal, it would be a dead giveaway-
+-is what people in a lower tax bracket thought. He picked up the burger and bit straight down into it. She looked shocked, stunned, almost horrified. He finished the bite.
+"I spend 40 dollars on a burger, and I will eat it the way I see fit." He said.
+*When you make six figures, you don't care what a random waitress thinks about your eating habits. You pay her salary, and you will eat the way you please.*
+
