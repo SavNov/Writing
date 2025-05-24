@@ -159,78 +159,83 @@ She frowned for a moment.
 The grown-ups handled the paperwork while she bought me lunch.
 
 She explained plenty of things to me. The Academy, which is what they called it from the inside, was a bit more than just a chat group.
-She'd neglected to mention that getting to the lunch place required hopping into a blacked-out SUV that she apparently knew how to drive and traveling roughly seventy miles to a burger joint where I met up with her friends in what had to be the most normal social interaction of my life. Izzy rolled down his window so he could see the others.
-There were five, in total, not including Izzy. There was Jamie, who looked like Jamie, there was Christopher, who looked like Christopher, there was Emma who looked like Emma, there was Alex, who looked like Alex, and there was Robin, who looked like Robin.
-Christopher was attacking what looked like a double stack with mustard, ketchup, mayo, pickle and whatever else would help him meet his caloric intake for the day. He looked up at Aidan through the car window, and grinned.
-"So we are not Neo-Nazis, and you are not being recruited into a terrorist sect." Christopher announced.
-"How very reassuring." He found himself muttering.
-"Jamie's not even- nevermind, not going to go there." Christopher attempted, then retracted.
-"You just went there." Jamie noted very artistically. "Thanks."
-The words sounded measured, practiced and composed like even a sentence like that was hard to string together.
-Finally, he stepped out of the back of the SUV, opening the door and sliding through.
-A girl lunged at him, and before he had enough time to scream, she-
--kissed him, on the lips, with an excited passion. He blushed heavily at the intimacy of it, until she stepped back.
-He met her eyes.
-"I knew you would like that." She said softly, looking like the cat who ate the canary.
-$THE_LINE
-He stared at her.
-"How did you-" He asked, then his mind worked.
-*I hate profilers.* Izzy had muttered when he asked how many belts she had, like she'd already met one and had not enjoyed the experience. Based on...recent events...this girl was the profiler in question.
-"Oh. So you are the profiler." He realized.
-She grinned as she took a generous step back. He had a feeling that she'd wear that grin come hell or high water.
-"Profiler, avid study of serial killers, and as of recently, med student." She announced like she wore every single one of those labels with pride.
-"Emma is our profiler. She was the Academy's first recruit, and also..." Izzy explained, but he finished her sentence without really thinking about it.
-"...has sociopathic tendencies. Got it." He said.
-That had been his first kiss. He had the nasty feeling that Emma had both known and was counting on that. He was starting to hate profilers too.
-"You...you're a profiler too." She said, like it wasn't much a question as it was a part of which she hadn't noticed before, as if she'd just discovered that there was an emblem on his shirt. "Interesting."
-His mind was still fuzzy from that kiss. He knew that she knew that.
-She made no attempt at not looking crazy. She sniffed his shirt.
-"You showered recently. That would be..." She sniffed again. "Roughly two days ago, maybe three. Was Izzy something to do with that?"
-It was unusual to meet someone so completely unconcerned with looking weird and just a bit mental.
-"No, I was exhausted from the skatepark." He said.
-Her eyes widened just a sliver as she took another step back. Then she eyed Izzy.
-"Somebody had fun." She muttered.
-Izzy glared daggers.
-"Skated." Izzy growled. "Since when do you care about boys so much?"
-Emma studied her for a few seconds, then shrugged.
-"Of course the Olympian probably was an amazing skater the second she picked up the board." Emma scoffed. But then he saw that smile again.
-This girl wasn't angry at all. She just enjoyed chaos.
-"I sense we will have a long and healthy friendship." She smiled at him. "Though if you just want to kiss me again at some point, that can also work."
-He finally sat down at the table next to Alex, who looked deep in thought, so he figured the boy wouldn't disturb him. He was right. Alex was staring a hole into a draft, a frown on his face like he didn't quite like what he saw in it.
-A waitress greeted him.
-"Hi, welcome to Joey's. Is this your first time here?" She asked, with a deeply polite tone.
-*Middle class restaurant. There are newcomers, and there are regulars, and she wants to sort me into a category to see how I should be treated. There is a social hierarchy here.*
-His mind backfilled information. She was wearing a red cocktail dress like a uniform, wasn't even carrying a menu and none had been offered at the table because if you were coming here you already knew what they served or had been brought here by someone else who did. This was just as much a private club as it was a burger restaurant.
-He looked at the building. Brick and mortar, and old, probably not a franchise. Just a single location with a very local, very loyal clientele who provided enough business that they'd never needed to bother with advertisement.
-"No, but it's been a while." He said, trying to sound confident. Izzy blinked. "Cannot remember what it was called, but it was your best selling burger. Do you still offer it? I usually got it without mustard, but maybe that's changed."
-She paused for a moment, fidgeting with hem of her dress.
-"You want a Joey's Old Major." She offered.
-A test. *Are you really an oldie, or are you just bluffing?*
-"No, that doesn't sound right." He countered, pushing back just a little bit. "House Club?"
-"House Club Deluxe is what we call it now. Great to have you back." She smiled, more genuinely this time, convinced she was serving someone who either made six figures or knew someone who did very well.
-"So what's on it now? You changed the name, so I'm guessing you changed the burger." He asked.
-"Cheese, lettuce, tomato, ketchup, no mustard, relish and salt." She listed off.
-"Ahh...forgot about that. No relish either. I'd just managed to bury that memory of that first time." He sighed.
-She vanished into the main restaurant.
-They all stared at him.
-"Your cheeks aren't burning..." Emma teased, "but your pants definitely are."
-"Emma, you better watch out." Izzy warned, but more playful. Emma scoffed.
-"Nobody lies better than I do. Don't even go there." Emma seemed proud of that fact.
-"You guys come here often?" He found himself asking. Emma shrugged.
-"Sometimes. Not often. It's like seventy miles away." She said.
-*Seventy miles.*
-"Izzy asked you to meet her here, because it was halfway in between." He realized. "Who drove?"
-Jamie raised her hand.
-"Aye." She answered, like it was just another tuesday for her.
-"And...how old are you?" He found himself asking.
-"Diciassette." She answered swiftly.
-He raised an eyebrow.
-"17." Alex translated, then went back to his writing.
-"Both of you-" He almost said, but his mind filled in the gap before he could finish his sentence.
-*The art prodigy answers in Italian. With her expertise, she probably thinks in Italian more easily than English. Maybe Alex was a quick study of the language because of this.*
-"-nevermind." He finished his own sentence. "I get it now."
-The waitress came back with his burger on a literal silver platter. She placed it before him with a practiced ease, gingerly placing fork on left side and knife on right. *That must be proper dinner etiquette.* He was, of course, not remotely in a tax bracket high enough to care about etiquette, but he also understood that this was an additional test. If he started chowing down like an animal, it would be a dead giveaway-
--is what people in a lower tax bracket thought. He picked up the burger and bit straight down into it. She looked shocked, stunned, almost horrified. He finished the bite.
-"I spend 40 dollars on a burger, and I will eat it the way I see fit." He said.
-*When you make six figures, you don't care what a random waitress thinks about your eating habits. You pay her salary, and you will eat the way you please.*
+She'd neglected to mention that getting to the lunch place required hopping into a blacked-out SUV that she apparently knew how to drive and traveling roughly a hundred and forty miles to a huge mansion with fancy bushes and awnings and a huge security fence going around the entire property forty feet high.
+His jaw dropped. It was the largest building he'd ever seen, and fortified to the teeth.
+The ground floor windows didn't open, he could tell that from where he was sitting in the SUV as Izzy rolled the windows down and flashed a badge to a security camera. The place's mailbox was cast iron, but as his eyes focused he could see the insides were some kind of white substance he realized was probably reinforced concrete. Someone had actually accounted for a risk of an explosive being placed in the mailbox.
+*The Academy is just as much a fortress as it is a place of learning.*
+On the second floor, because yes this place had a second floor, the windows also didn't open, but there were ledges around them too with curves underneath that made climbing impossible unless you were crazy enough to actually use a grappling hook; which he realized also wouldn't work because the attacker would get a hit and immediately be blocked by the underside of the ledge. The only way to get to it, really, was to somehow approach from an altitude higher than the ledge.
+The third floor, though, had no walls, only big and thick windows that were almost certainly bulletproof. Or, more accurately, resistant to such high calibres that you'd need an elephant rife just to leave a crack in it. On the inside was a spacious gym with every single piece of exercise equipment known to humankind, huge rubber mats, and enough punching bags to give the Incredible Hulk impostor syndrome. There was a similar punching bag on the front lawn that implied an open window somewhere on the third floor. Izzy sighed as she stared at it.
+"Forgot about that. I should probably bring that in with me." She muttered.
+"How did you-" He tried to ask.
+"Today has been a looong day." She answered.
+About five questions popped into his head at once. He chose the second.
+"Open, or broken?"
+She looked at him and gave a laugh.
+"Open. I'm good, but not *that* good."
+She opened his door, and he stepped out, trying not to gawk at the massive place.
+"You're rich." He said. She stiffened for just a second, the way she had when he'd brought up her belts.
+"Not me, the Director is." She answered, but with the amount of effort she put into saying Director, it was pretty clear she wanted to call this Director something else.
+*Nobody wealthy opts for this much security unless very powerful people want inside the house.*
+They walked across the grass, which was perfectly kept, and after Izzy fetched the punching bag and lugged it over her shoulder like a sack of potatoes, approached the double doors.
+Izzy glared into the camera above them. "You know who I am."
+She stepped back and leaned on her right foot as if gearing up to throw a devestating punch. He saw the tiny bit of sand leaking out of a hole in the bag. He looked through the hole. He was greeted by a chunk of concrete the size of a fist buried in the midst of the sand.
+Asking for permission to open the big, heavy wooden doors was a formality for her. She could've broken them down to splinters with a few good hits.
+"Password?" The loud speaker asked. It was the voice of a girl his age or maybe a bit older, who was clearly smiling ear to ear.
+"The password is: Emma is a-" She finished her sentence with a slur that he knew to never, ever repeat in front of anyone.
+"Aww, you love me that much?" The girl asked through the loud speaker, and a buzz signaled the door had opened.
+The foyer was the size of his entire house. Impossibly tall brick furnishings lined the walls, with torches spaced throughout alongside electric lighting like the entire space had been designed with the idea that the power might go out at any moment. The floor was cold stone with huge mosaic patterns that from where he was standing formed a giant logo. Outiside of an eight-pointed compass was a ring of stone that he realized both had to weight at least a hundred pounds and was fully removable. The ring contained six equally spaced symbols.
+Starting from the 2 o'clock position, there was a knife, a queen from chess, a paint brush, a Christian cross, a Scroll, and a mechanical cog.
+None of the symbols particularly screamed Izzy to him.
+*I'm not a member, but I might as well be.*
+So this is what she had meant.
+"Who's the cross?" He asked. He'd quite like to meet whoever it was.
+"You." Izzy said.
+"On...on such short notice? I only completed my exam less than a day ago!" He said in utter shock. Even if you had all the money in the world, machine shops and art studios only worked so fast. Even if they'd started the second he'd accepted, that meant someone working for three days straight to make the deadline. Nobody did that on short notice. Not unless the price was enormous.
+"Yeah, she's fast. Don't let it get to her head, though." Izzy groaned. "Last thing she needs a bigger ego."
+He stopped.
+"The gear." He realized.
+"Robin." She said.
+"The gear's name is- nevermind, I don't know what I was thinking." He muttered.
+They stepped across the foyer. His eyes locked with a girl who had her hair dyed midnight black and was dressed in a hoodie three sizes too big on her, walking barefoot. She quickly galloped over to him and right before he had time to process that she wasn't stopping, she kissed him. Her lips met his with a ferocity that surprised him and he could practically hear her squeaking with delight. Her fingers pressed into the skin on the back of his shoulder as she deepened it.
+Even Izzy was compelled to let out a "What the-" as it went on.
+It was my first kiss. I had a feeling that the girl knew that. Eventually, she broke it off, laughing with strange glee. She leaned in close, whispering what she said next directly into his ear so quietly nobody else could hear.
+"Does your mom know you dream about calling your girlfriend Mommy?"
+He blushed from ear to ear, and she hummed in satisfaction as she stepped back and looked as if she'd said nothing intimate whatsover.
+"How did you-" He paused.
+*I hate profilers.* Izzy had muttered when he'd first asked her about her belts. This might be the profiler in question that she despised. If she was anything like him...
+"Nevermind." He said, deciding not to risk asking.
+His thoughts drifted back to the password Izzy had given to this girl. Emma. That was her name.
+"Emma, right?" He asked.
+She rolled her eyes.
+"Did Robbie get all tired of me and ask for another profiler who wasn't so crazy?" She asked. Robbie. Robin.
+Then his ears ran that sentence through his mind again. To anyone else, it would've gone completely unnoticed. She was a cheeky, mischievous girl teasing people for the heck of it. But he wasn't anyone else. He was—maybe the label would suit him, maybe it wouldn't—a profiler. He saw things others didn't. And buried beneath that cheeky and carefree facade, he could sense that tiny hint of...insecurity. A shade of doubt. Incredibly suble, but there. And just as he'd found himself talking to that mental imitation of p1, another imitation appeared from the void. *They aren't really going to replace me, are they? They don't think I'm...defective, right?*
+It was pure speculation. Definitely not worth acting on. Not worth assuming. It was a wild guess based on a tiny tone of insecurity he'd found in an off-handed comment made by a girl who loved messing with people and getting reactions.
+*Are you a person, Emma? Or are you just a tool with a purpose?*
+His subconscious worked double-time, piecing fragments together just the same way it had pieced together p1 19 hours ago. Analyzing, speculating, churning through outcomes. He'd been observing little details in people ever since he was six. He couldn't exactly turn it off.
+Barefoot. Baggy hoodie. Wild black hair. Chronic grin. Completely relaxed, like she was in home territory. Eyeliner strewn across the face, put on haphazardly in the early morning light.
+*Nothing can touch me here, see? I'm at home. I'm safe.*
+Finally, his senses returned to reality. She was licking the side of his face like a prankster at a sleepover. He immediately shifted back.
+"Welcome to the land of the living!" She announced, then got slightly more serious. "Watch yourself, kiddo. I know the look when I see it. You don't want to be inside my head. It might be a funhouse for me, but to you it would be a horror attraction."
+*I've seen things I can't unsee. Done things I can't take back. Stay away, profiler. Game sees game, but you don't want mine.*
+They practically glided into the main mess hall.
+"So we are not Neo-Nazis, and you are not being recruited into a terrorist sect." A boy announced, walking up to meet him.
+"So you were, what, my proctor?" Aidan asked. He recognized immediately that this was the boy who'd been writing the notifications to him. Who'd written his exam. Which made this boy Christopher.
+"Obviously I didn't turn the camera on. I'm not stupid." Chris muttered. Even now, Christopher was hopping between feet like he was restless, unable to stand still.
+"Arch." Chris said simply, like that explained life, the universe and everything.
+"Yes?" He asked, not quite understanding what he meant.
+"I took after BSPWM. You're a rare breed. Hyprland all the way." He said, like he was impressed.
+"You...use Arch Linux too." He sighed in recognition.
+What followed was a long, detailed discussion over lunch about window managers, keybinds, workspaces, and cron jobs. Things which none of them understood besides the two of them. It kind of intimidated him, seeing that Chris knew so much more about all of it than him. He felt almost like an impostor, pretending to know all of it when he really understood only the tip of the iceberg. Then he remembered he was talking to the tech whiz. He had a feeling that when he started to explain everything he knew about people, about how their minds worked and they made decisions, the others would feel just as estranged as he did right now.
+If this was how those girls at parties felt when he talked about the parts of people that fascinated him, revealing that these social queen bees really knew very little, then he didn't blame them for avoiding him. He chose not to think about it. After all, these were his people. Things were going to be different now.
+He hoped.
+But he couldn't bury the bit of fear in his chest as he sat here. Him talking their ears off about his latest discovery, them not caring. It being constantly over their heads. Feeling disconnected, again, feeling broken, again, being alone, again.
+Izzy gestured for him to sit up.
+"Lunch time over. Your parents are probably done with their paperwork by now." She said.
+A girl spoke up. He turned to look at her, and found that her greasy brown hair was...on fire. She looked like the combination of a mad scientist and a redneck engineer. And she was glaring at Izzy.
+"At the very least show him his room." She spat.
+"I...I have a room?" He asked, suddenly rather quiet.
+Emma smiled from ear to ear.
+"Yes. You do. And I am insulted that Izzy doesn't think it's worth showing to you." She said.
+She took his arm with zero hesitation. "C'mon, let's see what Izzy snagged you."
 
+She brought him to a set of stairs, gesturing him forward. The stone slabs laid in rows were something you expected to find in a castle, not a modern home.
