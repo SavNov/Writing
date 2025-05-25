@@ -239,3 +239,16 @@ Emma smiled from ear to ear.
 She took his arm with zero hesitation. "C'mon, let's see what Izzy snagged you."
 
 She brought him to a set of stairs, gesturing him forward. The stone slabs laid in rows were something you expected to find in a castle, not a modern home.
+She brought him up them. Slab after slab, row after row, until they found themselves staring at a huge cross roads.
+A plaque with his name on it.
+She opened the door. He stepped inside. And his jaw just dropped.
+It was the square-footage of a living room yet built like a shotgun house, with shelves and drawers stocked with books. His favorite fictional series growing up: 39 Clues, Artemis Fowl, House of Cards. As well as dozens of textbooks covering everything from religious history to psychology to linguistics to political science. All in neat little shelves that would be accessible simply by sliding the comfortable office chair provided back and forth down the house in straight lines, stopping at what he needed, everything within arms reach. Given a few days of mentally cataloguing it, those shelves would function as a second brain, or maybe a knowledgebase would be a better word for it.
+The moment his eyes landed on the four monitors, he actually squeaked.
+"There's no way...how did you...on such short notice?" He asked very softly, very reverently now.
+"The Director spares no expense on people like us." She answered like it was obvious, punctuating it with a 'duh'.
+*There it is again. The Director invests in us. You think that they see us as assets. Tools.*
+"You have a kitchenette, a shower, a toilet, a wardrobe, and a bed." She said, gesturing to each small section of the living room-sized shotgun house. He'd heard of Japanese mini hotels, claustrophobic but dirt cheap. This was like one of those, but luxury. He'd always dreamed about maybe renting one for the night, just to see what it was like, but now it was real. He quickly ran down to the opposite end. Kitchenette.
+Fridge, cabinet, cabinet, cabinet...two counters, a toaster and a little pancake maker like from one of those hotels. No oven, no stove, nothing he could burn himself with.
+"Fair enough." He muttered. He was sixteen and had no interest in cooking besides ensuring that he got to eat something. He didn't bother checking the pantry. Instead, he opened the package of sliced bread on the counter, took one out, and made sure the toaster still worked.
+Emma seemed confused, but she didn't say anything.
+The toaster worked. He ate the slice of toast as he studied his new small bed. It had a big comforter and fluffy cotton blankets on it. He ran his fingers along the soft cotto
