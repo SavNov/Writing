@@ -58,3 +58,6 @@ The reason I'm stuck is because I'm veering off course. Buying lunch at Joey's, 
 * **Style Summary**: “Disciplined warrior.” Her wardrobe exists to optimize movement. Strong hints of military utility meets martial arts tradition.
 
 Why do I want to write Introvert Academy, again? This is my very shameless fantasy. My perfect bedroom, my perfect home, a place to utterly indulge in my own research. The entire place is full of wonder and discovery. It's tailored to him, and him alone. And its also a lesson about accepting reality. Instead of recklessly indulging in their own self-interest, even if their own self-interest involves helping people, they have to collaborate in their own way to help the world. Because everything goes right...until it doesn't. This is a rough draft. It's sole purpose is figuring out what the story even is, getting from point A to point B in my case. Charting a route to get an idea of where I want to go.
+That kiss had very little to do with actual love and everything to do with a teenager with sociopathic tendencies trying to Pavlov herself into feeling empathy for another human being. The desire to do so is indicative of some level of empathy, as she's scared of hurting people, but she doesn't seem to recognize that contradiction.
+What am I...even doing here?
+Oh, right, mulling over what we know about Izzy so far.

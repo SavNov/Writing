@@ -251,4 +251,74 @@ The moment his eyes landed on the four monitors, he actually squeaked.
 Fridge, cabinet, cabinet, cabinet...two counters, a toaster and a little pancake maker like from one of those hotels. No oven, no stove, nothing he could burn himself with.
 "Fair enough." He muttered. He was sixteen and had no interest in cooking besides ensuring that he got to eat something. He didn't bother checking the pantry. Instead, he opened the package of sliced bread on the counter, took one out, and made sure the toaster still worked.
 Emma seemed confused, but she didn't say anything.
-The toaster worked. He ate the slice of toast as he studied his new small bed. It had a big comforter and fluffy cotton blankets on it. He ran his fingers along the soft cotto
+The toaster worked. He ate the slice of toast as he studied his new small bed. It had a big comforter and fluffy cotton blankets on it. He ran his fingers along the soft cotton of the sheeets, trying to figure out just what kind of group the Academy was. He laid down.
+"Hey now," Emma warned, teasing him, "don't get too comfortable. You're just checking this place out."
+After a couple of seconds, a comeback popped into his head.
+"I'm checking this place out, and you're checking me out, so fair's fair."
+She looked deeply confused for a moment, then smiled.
+"Didn't think you had it in you, Aidan." She said. "Again, we could make that work."
+He heard the door open, and recognized Izzy's gate.
+"Time to go." She announced unceremoniously.
+He turned on his heels and followed her out. Looking at the crossroads of hallways again, he realized that each of these rooms must be different sizes. The largest of them was marked with a name: Jamie.
+At minimum, the room that door guarded had to be $1000 ft^2$. Huge. He wondered what was in it, but Izzy pulled on his arm, denying him the chance.
+"C'mon, your parents have got to be worried sick." She grunted.
+Emma gave him a grin. "See ya." She waved him off.
+He waved back.
+Izzy brought him back down that flight of stairs, into the main mess hall, and straight past the others, through that set of double doors, and back to the SUV. He climbed inside.
+He looked back at the mansion forlornly.
+He didn't want to leave. At least, not yet. He wanted to stay, to soak up the atmosphere, to look into the massive room that had to be behind that door, to talk more with these incredible people.
+"I don't need to be a profiler to recognize that look. What, did you eat a Lotus flower or something?" Izzy grunted at him, sounding very irritated, but more frustrated with herself than anything. He could tell he wasn't the only stressful thing on her mind right now.
+"A Lotus flower? How did you-" He asked, only for her to cut him off.
+"You aren't the only one who read as a kid. I may look tough, but that doesn't mean I'm illiterate." She spat.
+*Ouch.*
+Then an imitation started talking.
+*When you're stuck with **these** people all day long, you spend a lot of time feeling stupid. It's not a nice feeling, especially when they all see you as nothing but muscle.*
+And then-
+*I'm supposed to be the one to keep everyone safe, and I just screwed up.*
+"Sorry." He muttered under his breath.
+"You've been here for four hours. That is WAY longer than I planned for. I told your parents this would take an hour at most." She said.
+That set of words rang in his mind again.
+*I'm supposed to be the one to keep everyone safe, and I just screwed up.*
+He was stunned at how long he'd been here. It had felt like an hour at most. And then, for the first time since the exam, he didn't force his mind to bury that voice. He allowed his subconscious, which he usually held at arm's length and didn't put much faith in, to do the work.
+*THAT is who I've been my whole life. Keeping you guys safe. Keeping you guys alive. Even as the Director dealt with more dangerous people, he trusted me, and I nearly broke that trust. And now...something bad is coming. I don't know what, I don't know how, but it's coming, and if the Director is scared, then it is going to be worse than anything I've ever had to deal with before.*
+There was no way it was accurate. He barely knew this person. They'd spoken for a sum total of 10 hours at most. And yet...it had caught p1, hadn't it?
+He obviously couldn't trust it blindly. That wouldn't end well for anyone. But it gave him a place to start looking. He watched her. Saw how her body tensed, how she put so much effort in keeping that distance between herself and the world. Coincidence. Maybe so, maybe not. He wondered if Emma found herself asking the same question when she used her own gift, when she read people the way she did. *Am I crazy? Is this just guesswork? How do I know whether this is accurate or not?*
+Maybe that was the hard part to any of them using their gifts. *How do I know I'm right?*
+He pictured Chris in his mind, opening up that CIA database, wondering if they would catch him, wondering if he'd finally gone too far. If he was going to go to jail this time. Jamie wondering just how many paintings she'd marked as forgeries were actually forgeries, and how many were her confusing artists straying from their home patterns with a copycat trying to imitate them. Robin wondering in the back of her mind, as the picked up a blowtorch and went to work at a sheet of scrap metal, if today would be the day the fuel sparked and she died in a huge fire. That fear. *How do I know I'm right?*
+Or maybe he was just overthinking again. Getting stuck in his own head. Ignoring reality again. He didn't know.
+He wanted to find out.
+Once Izzy drove him home, he greeted his parents.
+"Hey mom, hey dad." He said, waving at them.
+His dad smiled back, looking hopeful.
+"Don't ever do that again." His mom practically growled as she wrapped him in a bear hug. "I was worried sick."
+He hugged her.
+He'd gotten so distracted by the majesty, the glamour, of that mansion that he'd forgotten this was just lunch and he had two parents waiting for him. Finally, he started thinking practically again.
+"So what's visitation like?" He asked Izzy.
+She frowned for a moment. "Visitation?"
+"This is a college. Not a prison." He said.
+She scoffed.
+*She hasn't gotten that question before. Not Chris, not Emma, not Jamie, not Robin, not Alex. None of them asked.*
+Either his new roommates had the most terrible home lives ever, or his question was about to be disregarded just like theirs had.
+"Chris spends Wednesdays at home with his family. Robin...well...she doesn't really see her family except on Thanksgiving and her Birthday." Izzy said, like it was a very awkward subject.
+"Alex?" He asked. If any of them would be sociable enough to want to see their family regularly, it would be Alex.
+She tensed up instantly.
+"Alex lost his parents about a year after joining the Academy." She said, like she was choking on the sentence.
+The mood of the room, or foyer, instantly dropped by about twenty degrees.
+"Sorry." He felt compelled to say.
+"It's...okay...you didn't know." She said, like each word was forced.
+"I know it's not my business, but may I ask how?" His dad asked her, sounding both apologetic...and curious.
+Poking the bear.
+"Car accident. They...they died instantly." She said, adding that last part to assure his parents that the two hadn't suffered.
+"Drunk driver?" Aidan asked quietly.
+"...something like that." Izzy said. He took in her body language. Tense, but also guilty. Her lip was twitching.
+And in that moment, he knew, though he couldn't have told anyone how or why, that the drunk driver in question hadn't been the other vehicle.
+He mentally added that to the stack.
+"Anyway," He said, eager to change the mood of the room, if not for his sake, for that of his parents, "...I really think I'm going to make some friends this time."
+Both mom and dad jumped on the sentence like a lifeline.
+"Are you sure?" Dad asked. "I know that friends has been...difficult for you."
+He nodded. "I'm fairly confident."
+His mom smiled in acknowledgement. "Well, if you're sure, then I'm sure."
+They all headed inside as Izzy explained visitation and board and bedding to his parents, who was paying tuition, all that kind of stuff. She was sitting on the couch, looking utterly confident in herself.
+The Academy was private and highly prestigious and they were incredibly fortunate my talent had been noticed and—
+—his mind blotted the rest out almost immediately.
+Instead, he watched Izzy. Calm, cool, collected, in her element, like talking to people was her specialty.

@@ -1,4 +1,5 @@
-
+Ever since the age of 13, Aidan had been hearing voices. Well...a voice. In the back of his mind, giving advice. It had been simple stuff at first. *Duck, left, right, dodge.* But then, as he'd proved he could take it, it had gotten more sophisticated. *It depends upon scent, hide behind the pillar, it can only hear.* Always deep, always commanding, but also...it had never been wrong. He trusted it implicitly.
+He was in his second year of high school now. The flourescent lights had always bothered his eyes. His red sneakers tapped against the tile floor. The typical entendre of teens walking beside him in the hallway scoffing made its presence known as he went to the cafeteria to get lunch. His shirt was baggy and never had fit him quite right. Neither had those two-tone jeans. He guessed it was part of being skinny and lanky and generally not very fit or muscular. Unless you talked about...he chose not to dwell on it.
 
 Aidan felt his muscles tense. This was it. He would either die here, or he would win.
 *Trust the plan.*
