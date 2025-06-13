@@ -60,12 +60,12 @@ And suddenly he wasn't burning anymore. He pushed up, grabbed the boy by the thr
 He should’ve said something. Fought back. But his brain was busy having a crisis about whether this counted as dying or second base. He would've opened his mouth, but he was afraid she'd try to seal the deal by kissing him to shut him up. Which, to his own deep and profound shame, was exactly what he wanted her to do.
 *Don't even think about it.* He didn't know if that was him thinking or the voice.
 "But a child of the gods walks where his forces bled, and he hates the gods nearly as much as Cronus does. So Cronus aids him. Shields him from the gods' wrath. Even if I will not feed upon you, that child will." It said, and he could hear it grinning.
+She released him, but only because, as he feared, something else was going to kill him later on, and she would be there to witness. It took him a moment to get his thoughts together well enough to get up. He clamored out of the seat, stood up, and walked out of the bus, each step downward feeling like pins and needles.
 
-He stood up and walked out of the bus. A girl looked him over. She wasn't dressed for the New York Public Library.
+A girl looked him over. She wasn't dressed for the New York Public Library.
 
 "You will know him when you see him." She muttered to herself. "Fair enough."
 
-She was dressed... in full Greek battle armor.
 
 "You aren't dressed for the library." He said.
 She glared at him. "Do I look like someone who frequents the New York Public Library?"
@@ -190,45 +190,4 @@ Clarisse finally chimed in. I hadn't sensed her coming. That didn't feel right.
 Even Chiron seemed confused.
 "Void...void thing? Please, elaborate." He said.
 I told him what I knew.
-She could only reveal her true form when no mortals were around to see her. Once she did so, she was nearly impossible to escape. Thinking back on it, I couldn't even remember if I'd shaken her off or if she'd fled after watching me throw her brother through a plate-glass window. It felt like the memory had been steadily pulled out of my mind. I took a pencil and paper out of my polo pocket, which with a mind like my was mandatory, and closed my eyes. Even imagining her in my mind's eye made my mind feel like it was being pulled forward into the abyss.
-*Eye witnesses lose up to 50% of the visual acuity of their memory by attempting to translate it into words.* I remembered.
-*Clever.* The voice commented, sounding mildly impressed.
-It was awfully easy to draw with just a pencil when your subject was monochrome. I sketched the black void woman as quickly as I good, taking it in layers because I didn't know how long I would remember her for and a full but inaccurate picture was better than a partial and accurate one when you were trying to spot the thing in real life. After three layers, I remembered to write 'Jamie' and 'from bus' at the bottom in case he los
-It still got on my nerves that Jamie and that flame spirit boy had been hunting me for two weeks and I'd never picked up, even once, on the idea that the two might be colluding. Even be brother and sister. I calmed myself. Deep breaths.
-Thinking back on it, I couldn't even remember if I'd shaken her off or if she'd fled after watching me throw her brother through a plate-glass window. It felt like the memory had been steadily pulled out of my mind. I took a pencil and paper out of my polo pocket, which with a mind like my was mandatory, and closed my eyes. Even imagining her in my mind's eye made my mind feel like it was being pulled forward into the abyss.
-*Eye witnesses lose up to 50% of the visual acuity of their memory by attempting to translate it into words.* I remembered.
-*Clever.* The voice commented, sounding mildly impressed.
-It was awfully easy to draw with just a pencil when your subject was monochrome. I sketched the black void woman as quickly as I good, taking it in layers because I didn't know how long I would remember her for and a full but inaccurate picture was better than a partial and accurate one when you were trying to spot the thing in real life. After three layers, I remembered to write 'Jamie' and 'from bus' at the bottom in case I lost those, too. It took about five minutes.
-
-After the last layer I could manage, I stared at it.
-
-“What's that?” Clarisse asked.
-
-I shrugged.
-
-“I... don't know. Seemed so important before." I said.
-
-I read the words at the bottom.
-
-*Jamie. From bus. It steals memory.*
-Jamie? The monster that had flirted with me for the past two weeks? I didn't remember her being on the bus.
-
-*Wait.*
-
-*Draw for comparison.* The voice suggested.
-
-It was... a dumb idea, but I did it anyway. I pictured the girl in my mind, and drew her figure in layers like I'd learned to do. I was no artist, but it looked sort of human. I didn't have colors, only a pencil, so instead I wrote ‘purple eyes, green shirt, blonde hair, khaki pants’ in the bottom margin.
-
-Chiron photographed the picture of the void girl with an urgency that confused me, and ran inside the Big House on his hooves.
-
-When he returned, he looked... unnerved.
-
-“I have copied the image to my computer in hopes of preserving it." He said, his voice slightly shaky.
-
-Clarisse looking thoroughly rattled, not by the girl, but by the way Chiron was acting. Chiron was rattled, too. He eyed me with absolute seriousness.
-
-“You will tell me every single thing this Jamie did in the past two weeks. Now." Chiron demanded.
-
-I read off the mental list. She'd been hunting me, gauging my powerset, but I'd always been too quick, too clever, especially with the voice’s help, though I didn't mention the voice to Chiron. I detailed the three dozen encounters I'd had with her.
-
-I noticed that Chiron was recording me.
+She could only reveal her true form when no mortals were around to see her. Once she did so, she was nearly impossible to escape. 
