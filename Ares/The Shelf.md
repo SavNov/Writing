@@ -95,3 +95,83 @@ Both their faces frowned as they looked at him for a few seconds.
 He did the polite thing, and bowed.
 "Um, yes, m'lady." He said.
 It was such a foolish and strange gesture that both girls found themselves charmed. They nodded.
+
+AIDAN
+Aidan could see the mortal-shielded forms of titans walking behind the essence of the destroyed titan. The bane of Hecate, he'd been told.
+His mother was gone. And he, at the height of his power, had tried a plan that seemed so simple and foolish he thought it must be doomed to fail. A trinket made by Hecate to hold and ferment power. Combined with some of his, some of each cabin at Camp Half-Blood, some of the power of each of the 13, and power from dozens of minor gods and goddesses that nobody had really cared about before. Pulled every single favor every god and goddess had ever owed him. Put it in a device. Use it to parry Kronos' Scythe as the giant had attempted to use some of its magic, revealed just a fraction of the Scythe's full power.
+The crack was now three inches deep and six inches wide. Tiny, in the scale of the grand weapon. But now he could see red energy sparking. It was unstable.
+He had allowed the titans to collect it.
+"What's that? What are they doing?" Clarisse asked.
+He realized he knew.
+"Capturing the titan's essence in one place." He said.
+She raised a brow.
+"So they can rise it again?" She asked.
+"No," he corrected. "so no one can. Ever again."
+The titans opened a hole in the ground with their own weapons, careful to be in mortal forms so they didn't risk harming him or Clarisse.
+Titans. Afraid of harming mortals.
+*What did I just do?* He asked himself.
+Ares answered within him.
+*Oh, nothing much. Just forced the greatest weapon ever forged, forged by the very hand of Gaea no less, into permanent retirement. No biggie.*
+*Why are they taking mortal forms? Are they afraid of me?* He asked.
+*Afraid is a small word. With the power you have built over the years, they are terrified of you. Willing to take forms that seem like ants to them just to avoid the chance of injuring you or anyone you care about.* Ares said.
+*Why would they be afraid of little old me?* I thought.
+*That is a question so stupid I'm not even going to dignify it with an answer.* Ares replied.
+"What are they going to do with the essence?" Clarisse asked him.
+"Cast it into the River Lethe. Let the river keep it scattered forever. Wiping its mind over and over again so it can't project its thoughts into anyone else ever again." He answered, not certain how he knew.
+"Why would they want to keep it scattered forever?" She asked. "Wouldn't they want it to reform? It's a child of Gaea, a powerful thing, a living weapon."
+"Because," He said, letting a thought he didn't know the source of speak. "daughter of the war god, what you call a thing of Gaea has made a mistake that nearly killed all things. God, demigod, titan, Earthborn. All things. That mistake, for the sake of all titans, must not be allowed to recur. Even if laying such a weapon down will end the titans."
+
+PIPER
+Whenever they'd played Any Three Questions, she'd always asked where Dad thought Mom was. On that beach, while she'd felt horrible about ruining the best day they'd had together in months by stealing that BMW, her Dad had gave that same old, tired answer.
+Grandpa Tom always talked about Ghost Country. Where, if you walked far enough out into the horizon, you'd see the place where the living met the dead. That, Dad always said, was where he thought Mom was.
+Did that make this place Ghost Country?
+She'd watched her boyfriend lose his memories, lost her dad to a giant who was now holding him captive unless she betrayed her new friends, watched Jason take a bolt of lightning...and get back up...seen her borderline-homicidal teacher turn into a goat man and sacrifice himself to save them, seen those wind spirits...had gotten picked up by two teenagers in a flying chariot who were discussing shoes and seemed to know a lot more than she did, rode said chariot to New York in a matter of hours, and then crashed into a lake in it, now surrounded by weird people called half-bloods who seemed to do the impossible every day...
+This place certainly *felt* like Ghost Country.
+In fact, from what she'd read about Indian myths, from the stories Grandpa Tom had told her...
+Ghost Country felt like the poor man's version of whatever this place was.
+
+Annabeth had greeted her. Told her that this ws Camp Half-Blood, and that she was a demigod like Piper was. Annabeth was a daughter of Athena, goddess of wisdom. Piper was...well, she didn't really know yet.
+She'd been able to see from Annabeth's expression that something was really bothering her. That her boyfriend, whoever this Percy Jackson guy was, he must be really important to her because she was slowly but steadily unraveling without him. Annabeth had shown her around the cabins. The daugher of Ares, Clarisse she'd been told, had smiled at her, which she was also told didn't happen that often. Clarisse didn't tend to smile at people.
+Well, with the exception of two very specific people. One of which was walking beside her right now.
+Aidan Travis. He had short brown hair that made his hazel eyes shine against his off-white skin, an orange Camp Half-Blood t-shirt that had the insignia of both a spear and a cross on it, but the text around the bottom edge didn't say Camp Half-Blood. It read: *Camp Half-Bronze*. He seemed calm, gentle and flat, but not in the stoic kind of way. It wasn't like he was trying to bury his emotions. It was more like his body didn't feel any innate urge to display them.
+"I'm Aidan Travis. And you are?" He asked.
+That flat, steady tone of voice made every word out of his mouth sound like a fact of the universe. Gravity. Light. Heat. A constant. It was the opposite of hers did.
+She froze for a moment, but felt...oddly safe. Like this was someone who didn't harm anyone.
+"Piper." She said quickly.
+She tried to gauge his expression, but it was like trying to read a statue. He paused for a couple of seconds, reading her.
+"The way you say your first name," he remarked, like it was a passive observation. "makes it sound as though your last name is the one you're worried about."
+*How does he know?* She thought.
+"I...have a lot going on, and-" She said, but he simply placed a single finger over his lips.
+"It's alright. I won't push. Though if you're worried about me telling anyone else, don't be. I know how to keep my trap shut." He said, voice washing over her like warm water. It reminded her of everything she loved about Malibu. She actually felt her heart starting to race.
+*Get it together, Pipes.* She thought to herself, clenching her fists just slightly.
+"You do?" She asked, risking sounding interested in the answer. This was just one more person she'd have to betray to save her father.
+He nodded.
+"If you are concerned about me revealing it to anyone else, then I give you my word. As Child of War. I will not reveal your last name to anyone unless I have your consent." He said.
+*Child of War? Huh?*
+"But in exchange," he added, never breaking that stony sincerity that she'd tried to get at all her life. The memory of her dad in that cheesy Greek outfit, King of Sparta in that old movie, both made her laugh and filled her with dread. "you will owe me a favor."
+She thought she saw his Adam's apple hum slightly golden with cosmic power at that last few words. Then it vanished, and she figured she must have been imagining things.
+"A favor? Why do I have to owe you a favor?" She asked, arching her eyebrow, which untintentionally sent her dead badger of hair just slightly over the edge of her forehead so it fell into her face and made her look like the very soul of fury. She moved just enugh out of the way to see him.
+He didn't appear fazed. He closed his eyes, like he was sorting through a thousand different ways of explaining what he was trying to say, trying to find the right one.
+"Because my word is a precious thing. I do not boast about that. And as such, I have a price for it." He said, each word sounding just as true and certain and sincere as the rest.
+Was this what that car salesman had heard when she'd talked him into giving that BMW to her for a test drive? It seemed so manipulative, which made her feel terrible, but it made her trust him instinctively, which helped a bit.
+She hoped one day that she'd be able to use her voice the same way he used his.
+A favor? That was it? She had this sense in her gut, like she always did when she read people, but this time it was telling her that she could trust him. He would never make her do the wrong thing. It would always be for good.
+She paused for a long moment after that. Her lips felt dry, so she attempted to moisten them with the tip of her tongue. She felt unsteady on her feet, so instead she gently padded down on one and lifted the other, going back and forth between them slowly. Her heart was wounding. She gave her body time to relax and slow down.
+Those eyes. Those hazel eyes. Those eyes would never hurt her. Never betray her.
+It made her feel terrible that she ws going to have to betray them to get her father back.
+"I...trust you. I owe you one favor, in exchange for your word." She said. Immediately, her chest tightened, like she'd just made a pact with something far more powerful than she'd imagined.
+He nodded.
+"You have my word. As the Child of War." He said.
+She gathered all her strength.
+"My dad...my last name is McLean." She confessed in a quiet whisper. That name should've sent his eyebrows shooting up in shock.
+But the words 'Can I get your autograph?' and 'Can you get me a selfie next to your dad?' didn't suit him. She could tell that right away.
+"McLean." He said, his voice never changing out of its cold, flat, calm and steady register. A fact of the universe, like air and light and sound. "You say that name like it's self-evident."
+It was a passive observation, not an accusation.
+"Tristan McLean." She clarified, thinking that maybe the full name would jog his memory. It didn't. Just like talking about that kiss on the roof, about Jason was her boyfriend, about how she loved him, wasn't forcing Jason to remember her either.
+"Senator, diplomat, or actor?" He asked.
+She didn't have to answer him. For a second, she didn't want to. She was stunned into silence for a good minute as she realized this boy, this child of Ares that was so weird and different, had never heard of her father.
+Her eyebrows attempted to flee her head. Going up and up like a toddler in the Create a Mii menu trying to make his little person look 'funny! haha!'. Finally, she managed into a single coherent thought.
+"You...don't know who that is." She said out loud.
+He nodded no.
+"Actor." She sighed with both relief and disappointment. This kid who had her heart racing, was so stable despite her universe imploding around her, was able to use his voice in ways she could only dream about, who she found totally unreadable yet completely trustworthy. Had heard her father, the biggest poker chip of fame she had, her ace in the hole, the one thing that made anyone bother to remember she even existed,'s name.
+And didn't have the slightest idea who he was.

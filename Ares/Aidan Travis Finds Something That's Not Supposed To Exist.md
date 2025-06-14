@@ -21,12 +21,12 @@ My mind rolled back through three years and two dozen fights with monsters.
 Chiron sounded mildly confused, but humored him.
 "Well, I suspect already you have a long story, Aidan Travis. Why don't you start at this morning and we'll work our way backwards?" Chiron said.
 He was trying to meet me in the middle. I respected that.
-"I got out of bed and mentally prepped for my field trip to New York Public Library way up..." I said, then remembered I was in New York now. "...here."
+"I got out of bed and mentally prepped for my field trip to New York Public Library way up…" I said, then remembered I was in New York now. "…here."
 Chiron gestured for me to continue.
 *Tell him everything, with the exception of what should be obvious.* The voice said.
 *Yes, I don't feel like being institutionalized today.* I thought.
 I told him how my mom had made me breakfast before heading to work to teach her college class, how I'd read a good book on Calvinism-
-"Calvinism?" Chiron asked me, very surprised.
+"Calvinism?" Chiron asked me, very surpised.
 "Yes." I said.
 Chiron muttered under his breath, but allowed me to continue.
 -and strategized on how to deal with Jamie.
@@ -35,6 +35,6 @@ Clarisse finally chimed in. I hadn't sensed her coming. That didn't feel right.
 "Are you talking about the void thing?" She asked me. I nodded.
 "She called herself Jamie." I said.
 Even Chiron seemed confused.
-"Void...void thing? Please, elaborate." He said.
+"Void…void thing? Please, elaborate." He said.
 I told him what I knew.
 She could only reveal her true form when no mortals were around to see her. Once she did so, she was nearly impossible to escape. When she had pinned me down, it had been like standing next to the event horizon of a black hole.
