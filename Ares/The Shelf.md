@@ -14,7 +14,7 @@ After the last layer I could manage, I stared at it.
 
 I shrugged.
 
-“I... don't know. Seemed so important before." I said.
+“I… don't know. Seemed so important before." I said.
 
 I read the words at the bottom.
 
@@ -25,11 +25,11 @@ Jamie? The monster that had flirted with me for the past two weeks? I didn't rem
 
 *Draw for comparison.* The voice suggested.
 
-It was... a dumb idea, but I did it anyway. I pictured the girl in my mind, and drew her figure in layers like I'd learned to do. I was no artist, but it looked sort of human. I didn't have colors, only a pencil, so instead I wrote ‘purple eyes, green shirt, blonde hair, khaki pants’ in the bottom margin.
+It was… a dumb idea, but I did it anyway. I pictured the girl in my mind, and drew her figure in layers like I'd learned to do. I was no artist, but it looked sort of human. I didn't have colors, only a pencil, so instead I wrote ‘purple eyes, green shirt, blonde hair, khaki pants’ in the bottom margin.
 
 Chiron photographed the picture of the void girl with an urgency that confused me, and ran inside the Big House on his hooves.
 
-When he returned, he looked... unnerved.
+When he returned, he looked… unnerved.
 
 “I have copied the image to my computer in hopes of preserving it." He said, his voice slightly shaky.
 
@@ -81,7 +81,7 @@ It didn't make sense. Except it did.
 "I did. Then a son of the sea god saved the world, made me look like a fool, and a goddess of the magic was made very humble by her failings. I have been proven wrong. I admit that. Now go, young Child of War." She said, then turned it into a cheeky smile. "I think it's long overdue time for my predecessor to learn to recognize when he's been outplayed, don't you?"
 
 AIDAN
-Aidan was...confused. The Hunters of Artemis were supposed to hunt monsters. So...why was one fighting him again?
+Aidan was…confused. The Hunters of Artemis were supposed to hunt monsters. So…why was one fighting him again?
 He wasn't winning, not exactly. It felt like his body was a machine, sending swings and flips and kicks as the girl sent them out against them. Each move was nothing more than a Chess move, so his body had Stockfish running in the background, handling the boring bit while he did the actually interesting thing and talked to the girl.
 "Can you just- stop- hitting me? It's very annoying, and I'm trying to tell you something!" He groaned as his body did a kick flip mid-sentence and parried her strike from above.
 "Is this some new ability of the children of Ares I've yet to encounter? He fights like-" She said, thick Scottish accent shining right through as she fought to block the blow that was currently arriving with the force of a sledgehammer.
@@ -122,12 +122,15 @@ Ares answered within him.
 "Because," He said, letting a thought he didn't know the source of speak. "daughter of the war god, what you call a thing of Gaea has made a mistake that nearly killed all things. God, demigod, titan, Earthborn. All things. That mistake, for the sake of all titans, must not be allowed to recur. Even if laying such a weapon down will end the titans."
 
 PIPER
-Whenever they'd played Any Three Questions, she'd always asked where Dad thought Mom was. On that beach, while she'd felt horrible about ruining the best day they'd had together in months by stealing that BMW, her Dad had gave that same old, tired answer.
+Whenever they'd played Any Three Questions, she'd always asked where Dad thought Mom was. On that beach, while she'd felt horrible about ruining the best day they'd had together in months by…
+…stealing that BMW…
+…her Dad had gave that same old, tired answer.
 Grandpa Tom always talked about Ghost Country. Where, if you walked far enough out into the horizon, you'd see the place where the living met the dead. That, Dad always said, was where he thought Mom was.
 Did that make this place Ghost Country?
-She'd watched her boyfriend lose his memories, lost her dad to a giant who was now holding him captive unless she betrayed her new friends, watched Jason take a bolt of lightning...and get back up...seen her borderline-homicidal teacher turn into a goat man and sacrifice himself to save them, seen those wind spirits...had gotten picked up by two teenagers in a flying chariot who were discussing shoes and seemed to know a lot more than she did, rode said chariot to New York in a matter of hours, and then crashed into a lake in it, now surrounded by weird people called half-bloods who seemed to do the impossible every day...
+She tried to remember all the insane things that had happened in the past 48 hours.
+She'd watched her boyfriend lose his memories…lost her dad to a giant who was now holding him captive unless she betrayed her new friends…watched Jason take a bolt of lightning—and get back up…seen her borderline-homicidal teacher turn into a goat man and sacrifice himself to save them…seen those wind spirits…had gotten picked up by two teenagers in a flying chariot who were discussing shoes and seemed to know a lot more than she did…rode said chariot to New York in a matter of hours…and then crashed into a lake in it…now surrounded by weird people called half-bloods who seemed to do the impossible every day…
 This place certainly *felt* like Ghost Country.
-In fact, from what she'd read about Indian myths, from the stories Grandpa Tom had told her...
+In fact, from what she'd read about Indian myths, from the stories Grandpa Tom had told her…
 Ghost Country felt like the poor man's version of whatever this place was.
 
 Annabeth had greeted her. Told her that this ws Camp Half-Blood, and that she was a demigod like Piper was. Annabeth was a daughter of Athena, goddess of wisdom. Piper was...well, she didn't really know yet.
@@ -136,12 +139,12 @@ Well, with the exception of two very specific people. One of which was walking b
 Aidan Travis. He had short brown hair that made his hazel eyes shine against his off-white skin, an orange Camp Half-Blood t-shirt that had the insignia of both a spear and a cross on it, but the text around the bottom edge didn't say Camp Half-Blood. It read: *Camp Half-Bronze*. He seemed calm, gentle and flat, but not in the stoic kind of way. It wasn't like he was trying to bury his emotions. It was more like his body didn't feel any innate urge to display them.
 "I'm Aidan Travis. And you are?" He asked.
 That flat, steady tone of voice made every word out of his mouth sound like a fact of the universe. Gravity. Light. Heat. A constant. It was the opposite of hers did.
-She froze for a moment, but felt...oddly safe. Like this was someone who didn't harm anyone.
+She froze for a moment, but felt…oddly safe. Like this was someone who didn't harm anyone.
 "Piper." She said quickly.
 She tried to gauge his expression, but it was like trying to read a statue. He paused for a couple of seconds, reading her.
 "The way you say your first name," he remarked, like it was a passive observation. "makes it sound as though your last name is the one you're worried about."
 *How does he know?* She thought.
-"I...have a lot going on, and-" She said, but he simply placed a single finger over his lips.
+"I…have a lot going on, and-" She said, but he simply placed a single finger over his lips.
 "It's alright. I won't push. Though if you're worried about me telling anyone else, don't be. I know how to keep my trap shut." He said, voice washing over her like warm water. It reminded her of everything she loved about Malibu. She actually felt her heart starting to race.
 *Get it together, Pipes.* She thought to herself, clenching her fists just slightly.
 "You do?" She asked, risking sounding interested in the answer. This was just one more person she'd have to betray to save her father.
@@ -159,19 +162,55 @@ A favor? That was it? She had this sense in her gut, like she always did when sh
 She paused for a long moment after that. Her lips felt dry, so she attempted to moisten them with the tip of her tongue. She felt unsteady on her feet, so instead she gently padded down on one and lifted the other, going back and forth between them slowly. Her heart was wounding. She gave her body time to relax and slow down.
 Those eyes. Those hazel eyes. Those eyes would never hurt her. Never betray her.
 It made her feel terrible that she ws going to have to betray them to get her father back.
-"I...trust you. I owe you one favor, in exchange for your word." She said. Immediately, her chest tightened, like she'd just made a pact with something far more powerful than she'd imagined.
+"I…trust you. I owe you one favor, in exchange for your word." She said. Immediately, her chest tightened, like she'd just made a pact with something far more powerful than she'd imagined.
 He nodded.
 "You have my word. As the Child of War." He said.
 She gathered all her strength.
-"My dad...my last name is McLean." She confessed in a quiet whisper. That name should've sent his eyebrows shooting up in shock.
+"My dad…my last name is McLean." She confessed in a quiet whisper. That name should've sent his eyebrows shooting up in shock.
 But the words 'Can I get your autograph?' and 'Can you get me a selfie next to your dad?' didn't suit him. She could tell that right away.
 "McLean." He said, his voice never changing out of its cold, flat, calm and steady register. A fact of the universe, like air and light and sound. "You say that name like it's self-evident."
 It was a passive observation, not an accusation.
 "Tristan McLean." She clarified, thinking that maybe the full name would jog his memory. It didn't. Just like talking about that kiss on the roof, about Jason was her boyfriend, about how she loved him, wasn't forcing Jason to remember her either.
 "Senator, diplomat, or actor?" He asked.
 She didn't have to answer him. For a second, she didn't want to. She was stunned into silence for a good minute as she realized this boy, this child of Ares that was so weird and different, had never heard of her father.
-Her eyebrows attempted to flee her head. Going up and up like a toddler in the Create a Mii menu trying to make his little person look 'funny! haha!'. Finally, she managed into a single coherent thought.
-"You...don't know who that is." She said out loud.
+Her eyebrows attempted to flee her head. Going up and up like a toddler in the Create a Mii menu trying to make his little person look 'funny! haha!'. She wanted to tell that toddler that none of this was funny. Finally, she managed into a single coherent thought.
+"You…don't know who that is." She said out loud.
 He nodded no.
 "Actor." She sighed with both relief and disappointment. This kid who had her heart racing, was so stable despite her universe imploding around her, was able to use his voice in ways she could only dream about, who she found totally unreadable yet completely trustworthy. Had heard her father, the biggest poker chip of fame she had, her ace in the hole, the one thing that made anyone bother to remember she even existed,'s name.
 And didn't have the slightest idea who he was.
+
+As Ms. La Rue crossed the boundary line into Camp Half-Blood, she marked the first mortal to have done so in at least as long as anyone there had been alive—with maybe one centaur-shaped exception.
+
+Mortals were not designed to process the godly world. That was why so many demigods had ADHD and dyslexia: to help them survive it. To read ancient Greek like a native tongue. To parse battlefield chaos in fractions of a second.
+
+But Ms. La Rue didn’t see chaos.
+
+She saw something terrifyingly clear.
+
+She saw that her daughter had been secretly fighting a much more dangerous, much less cowardly war than she ever had. A real war. With casualties.
+
+And suddenly, every sleepless night she had spent arguing whether a corporate merger should take place in fall or winter to account for shaky investor confidence versus the holiday sales boost felt so stupid she nearly cracked up laughing. All those endless email chains, boardroom standoffs, icy smiles in power skirts and overpriced heels… they were pebbles stacked next to a mountain.
+
+Hundreds of kids, barely teenagers, armored up like soldiers from myth—because they were soldiers from myth—worried not about quarterly projections, but about whether they would live through the summer.
+
+She had spent her own teenage years playing GTA 5 in real life. Dumb, reckless crap she’d done for fun. Fires. Street races. Hopping fences. Picking fights with cops and calling it “freedom.”
+
+Now, standing here, she wanted to go back in time and slap herself.
+
+That thought kept her awake more than ten espressos ever had.
+
+She felt deeply humbled. This wasn’t her scene. She was probably interrupting something very important. They had real work to do. They were building their lives in the gaps between tragedies. And she was just a mortal woman with clean hands and tidy spreadsheets.
+
+Then she saw the centaur.
+
+At first, she saw a man in a wheelchair, and her mind accepted it—until it didn’t. Her daughter had warned her about the Mist. A barrier to keep mortals from losing their minds by showing the world as they expected to see it.
+
+Now, she saw the truth.
+
+"I know… it is not my place. This is not my scene," she said, the sharpness in her voice dulled by awe and uncertainty. "If you are indeed Chiron, you have much more important things to do than be speaking with me."
+
+The centaur turned toward her and smiled. Calm. Steady. Patient.
+
+He offered her his hand.
+
+"Miss La Rue," he said gently, "it would be my pleasure to speak with you. Please, take a seat. Your daughter has done many great things—and it is about time you knew about them."
