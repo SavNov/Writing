@@ -50,7 +50,7 @@ HOPE
 AIDAN
 Aidan allowed his consciousness to drift. Most demigods did this unintentionally, hating doing this, it made them feel unnatural. It fought against their natures. They called it dreaming. But that wasn't what it was. That wasn't what happened when your mind left your body and wandered through the world.
 Especially not when you were him. Fully mortal, fully divine.
-A giant was feet away from his mortal body, playing a game, seeing who was better. Taunting the demigod that had gone to sleep. But he wasn't asleep. Those final words weren't the words of a sleeping boy.
+A titan was feet away from his mortal body, playing a game, seeing who was better. Taunting the demigod that had gone to sleep. But he wasn't asleep. Those final words weren't the words of a sleeping boy.
 "Okay. I'll play." He'd said.
 He willed himself to stand in the middle of that forest. Hecate was bathing. A Greek tragedy that had played out a dozen times before. Pig. Sheep. Goat. Deer. He stood with his back facing the hut.
 That wasn't the story he'd grown up with, though. Noah was drunk, and naked. His son knew. His son walked into the tent to ask his father a question. He'd seens Noah naked, a transgression against the Lord. Someone would have to pay. So he was following in the wisdom of the other brother. Walking backwards, towel in hand, giving her time. He knocked with his foot.
@@ -132,12 +132,13 @@ She'd watched her boyfriend lose his memories…lost her dad to a giant who was 
 This place certainly *felt* like Ghost Country.
 In fact, from what she'd read about Indian myths, from the stories Grandpa Tom had told her…
 Ghost Country felt like the poor man's version of whatever this place was.
+This place wasn't where the living met the dead, though. It was a place so strange that the living thought they had to be.
 
 Annabeth had greeted her. Told her that this ws Camp Half-Blood, and that she was a demigod like Piper was. Annabeth was a daughter of Athena, goddess of wisdom. Piper was...well, she didn't really know yet.
 She'd been able to see from Annabeth's expression that something was really bothering her. That her boyfriend, whoever this Percy Jackson guy was, he must be really important to her because she was slowly but steadily unraveling without him. Annabeth had shown her around the cabins. The daugher of Ares, Clarisse she'd been told, had smiled at her, which she was also told didn't happen that often. Clarisse didn't tend to smile at people.
 Well, with the exception of two very specific people. One of which was walking beside her right now.
 Aidan Travis. He had short brown hair that made his hazel eyes shine against his off-white skin, an orange Camp Half-Blood t-shirt that had the insignia of both a spear and a cross on it, but the text around the bottom edge didn't say Camp Half-Blood. It read: *Camp Half-Bronze*. He seemed calm, gentle and flat, but not in the stoic kind of way. It wasn't like he was trying to bury his emotions. It was more like his body didn't feel any innate urge to display them.
-"I'm Aidan Travis. And you are?" He asked.
+"I am Aidan Travis. And you are?" He asked.
 That flat, steady tone of voice made every word out of his mouth sound like a fact of the universe. Gravity. Light. Heat. A constant. It was the opposite of hers did.
 She froze for a moment, but felt…oddly safe. Like this was someone who didn't harm anyone.
 "Piper." She said quickly.
@@ -179,6 +180,7 @@ He nodded no.
 "Actor." She sighed with both relief and disappointment. This kid who had her heart racing, was so stable despite her universe imploding around her, was able to use his voice in ways she could only dream about, who she found totally unreadable yet completely trustworthy. Had heard her father, the biggest poker chip of fame she had, her ace in the hole, the one thing that made anyone bother to remember she even existed,'s name.
 And didn't have the slightest idea who he was.
 
+MISS LA RUE
 As Ms. La Rue crossed the boundary line into Camp Half-Blood, she marked the first mortal to have done so in at least as long as anyone there had been alive—with maybe one centaur-shaped exception.
 
 Mortals were not designed to process the godly world. That was why so many demigods had ADHD and dyslexia: to help them survive it. To read ancient Greek like a native tongue. To parse battlefield chaos in fractions of a second.
@@ -214,3 +216,135 @@ The centaur turned toward her and smiled. Calm. Steady. Patient.
 He offered her his hand.
 
 "Miss La Rue," he said gently, "it would be my pleasure to speak with you. Please, take a seat. Your daughter has done many great things—and it is about time you knew about them."
+
+CLARISSE
+Clarisse stood awkwardly in the polished foyer, arms stiff at her sides. Her mother’s home always looked like it belonged to someone else—like a showroom you were allowed to live in, provided you didn’t touch anything.
+
+Her mom’s voice filtered in from the kitchen, crisp and professional. “Yes, Gordon, I got the quarterly numbers. I am not concerned, I’m aware. Circle back to me on the Johnson account in half an hour—Clarisse just got home.”
+
+Clarisse waited a beat. Then two. Then cleared her throat.
+
+“Mom, have you ever…heard of the Greek gods?”
+
+That earned a pause. For a moment, Clarisse braced herself—for thunder, for lightning, for divine punishment. She’d just told a mortal about Olympus. Shouldn’t Zeus smite her?
+
+But nothing happened. No bolt. No omen. Just the soft clink of a coffee cup against porcelain.
+
+“I...believe so. Yes, Gordon, let’s circle back a moment while I work out what my daughter did at her new summer camp. Yes, the New York one,” her mother said, polite and precise, stepping back into the room, eyebrows raised like she expected Clarisse to say she’d eloped.
+
+Clarisse looked at her mother—her crisp blazer, her glossy hair, the steely precision in every motion—and thought about the war they had both been fighting.
+
+Clarisse hadn’t known the difference between running into danger and running from it until she was twelve. Claimed at Camp Half-Blood, chased over the boundary line by monsters while Coach Hedge fought to protect her.
+
+Her whole life, she’d believed her mom was doing the former—charging into the lion’s den of hostile mergers and PR wars.
+
+But standing face to face with a dracaenae, blood dripping from its fangs, Clarisse had realized the truth: her mother had been doing twelve long years of the latter. Running.
+
+Because corporate coldness was easier than not knowing why the love of your life vanished after one perfect night. Because not knowing whether it was your fault was worse than being told it was.
+
+“I believe I once did a paper in high school about the Greek gods,” her mother said, settling into the armchair. “Not a bad paper, if I do say so myself. What for?”
+
+Clarisse looked up at the ceiling and whispered, “Lord Zeus, forgive me for what I’m about to do. Smite me, not her.”
+
+Then, out loud: “It’s real.”
+
+Her mom blinked. “This isn’t another one of your pranks, is it, little Rue?”
+
+“It’s all real. All of it. Gods. Monsters. Demigods. Titans.” Clarisse said it with the terrifying calm of someone who had bled for every word.
+
+Her mom stared at her, eyes narrowing. “So all your little pranks were…real? Seeing monsters in the corridor, the little horse people in the sidelines, all of that was…?”
+
+Clarisse nodded once, solemn.
+
+Her mom exhaled sharply. “Well don’t I feel like a real arsehole.”
+
+Clarisse sat on the couch, rubbing her palms against her jeans.
+
+“Why are you telling me this?” her mom asked after a pause. “This…seems so…random.”
+
+Clarisse opened her mouth. Closed it. Tried again. Then just broke. The strength she'd worn like armor cracked all at once.
+
+“Because…” Her voice faltered. “Because…”
+
+She dove forward into her mother’s arms—not like the tough warrior daughter she tried so hard to be, but like the little girl who used to sneak into her mom’s bed after thunderstorms.
+
+“…my best friend died in my arms last night,” she whispered. “And it’s my fault.”
+
+Her mother didn’t speak. Didn’t move. Just slowly wrapped both arms around her daughter and held her. Clarisse’s breath hitched. Her hands fisted into the blazer lapel.
+
+“Here I am,” her mother murmured, “furious with the world over missing breakfast and having to attend a Saturday evening meeting with the board, and you have something truly awful to be mad about.”
+
+Clarisse’s voice came small, like she was twelve years old again. “Mom, I wanted so badly to tell you. But you were always so busy, and there was never enough time, between the monsters, the quests, the Golden Fleece, the Labyrinth, and Chris’ madness, I just... I didn’t know how.”
+
+They sat like that for a moment. Breathing. Heartbeats. Silence.
+
+Then Clarisse sat back, eyes red but determined. “You always wondered why he left.”
+
+Her mother stiffened.
+
+“You want to know what you did wrong.” Clarisse's voice cracked, but she pushed through. “But it wasn’t you. The gods made an oath. After the child’s born, they aren’t allowed to see the mortal again. No matter what.”
+
+Ms. La Rue stared at her.
+
+“That’s why he left?” she asked, but her voice was soft. Fragile.
+
+Clarisse nodded. “He had to. To protect both of us.”
+
+Ms. La Rue stood frozen for a moment, eyes wide. Her phone slipped from her fingers, hit the rim of her coffee cup, and crack—both tumbled down. Ceramic shattered. Coffee seeped across the pristine surface of her custom living room table.
+
+She didn’t notice.
+
+Or maybe she did. And just didn’t care.
+
+“I always wondered,” her mother said eventually, her voice breaking for the first time. “If it was something I said. Or didn’t say. If I scared him off. If I wasn’t good enough. Too forward. Not forward enough. I boiled myself alive over it for years.”
+
+Clarisse reached for her hand. “It wasn’t you.”
+
+That was what broke her.
+
+Ms. La Rue’s face twisted, lips trembling as tears slid quietly down her cheek. Clarisse had never seen her cry before. Not once.
+
+And now, here they were.
+
+Two generations of women with war in their blood and grief in their eyes.
+
+Not running anymore.
+
+Just breathing.
+
+
+Her mother inhaled shakily, then turned Clarisse’s chin up gently to face her.
+
+“Little Rue,” she said, firm and low, her businesslike cadence cracking around the edges, “don’t you ever assume, even for a moment, that a room full of pathetic suits and bureaucrats will ever be more important to me than you.”
+
+She wrapped her arms around her again and held her fiercely.
+
+“You will always have a home here. Always have a shoulder to cry on. Don’t you ever forget that.”
+
+Clarisse’s fingers clenched in the fabric of her mother’s jacket.
+
+“I was so afraid you wouldn’t believe me.”
+
+Her mother smiled, just barely. “I didn’t believe you when you said the dishwasher was haunted, or that there were ‘dinosaur pigeons’ on the school roof. But I should have listened. And I should’ve seen what you were carrying.”
+
+Clarisse let herself be held. Just this once.
+
+Maybe tomorrow, she’d go back to being the tough girl with the spear.
+
+But tonight?
+
+Tonight, she just needed to be someone’s daughter.
+
+AIDAN
+Immortal: A being, often divine, who is not mortal and does not face the threat of death. Often also eternally young.
+Last Days: A term used to describe a mortal, often human,'s final portion of life. Most frequently used in the context of a human being dying of a terminal illness.
+Kronos was not mortal. Kronos was not human. Kronos was not dying of a terminal illness.
+Yet here he sat, next to the old titan, watching a being who had never before thought he could die, staring down his own mortality. Not even in his own body anymore. The titan didn't even have that. With so little of his own essence left, all he could manage was a consciousness, a perpetual dream for himself, where he rested on Mount Othrys. Rhea to his left, Oceanus on his right. Not even able to die with his children next to him because they hated him, and rightly so. He had swallowed them whole out of terror of losing his throne.
+"After all I have seen and done," The titan had told him earlier. "I would have given up my throne willingly a thousand times over if it meant having little Hades and Zeus and Poseidon with me as I cross over."
+Rhea couldn't stop sobbing. Titans were not supposed to be able to die.
+Yet everyone waited. For the Earth Mother to deal out what she viewed as necessary.
+"If a knife, after eons of sharpening, still cannot cut me out a kingdom, I have no choice but to melt it down to metal and forge it anew. I had thought after all these years you had learned your lessons. I was wrong. That is a mistake I will not make again."
+The only reason that Kronos had not been snuffed out immediately after Luke Castellan had died was because he was filled with a burning resolve against Perseus Jackson and Gaea had seen fit, in a rare bit of mercy, to give her favorite child a year to get his affairs in order so he could die peacefully.
+In this state, Kronos couldn't have cared less about that Earth-Mother-cursed Scythe if he'd tried.
+Eaten his own children, hunted down his remaining son for years with the intent of eating him too. Kronos.
+"I have no idea what could bring a titan to consume his own children. To go to his cruel, sadistic father for emotional support. To live under Gaea. That is why my God has ordered me not to judge. All I can say is this: Let the Lord's Will be done on Earth as it is in Heaven." Aidan said, because it was all he really could say.
