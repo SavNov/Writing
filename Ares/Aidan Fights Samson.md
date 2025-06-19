@@ -1,3 +1,4 @@
+AIDAN
 The huge mountains seemed to stretch endlessly on either side. The fortress was…not fully guarded. That should've been the first indication that something was already wrong about this.
 I stepped forward, brandishing the sword I'd been given. Small, light, something I could reasonably use without much training.
 Three guards stood at the entrance.
@@ -20,3 +21,15 @@ I looked at the three men. Two now laid on the ground, disarmed, and the third w
 *Objective achieved.* Ares said, sounding proud.
 *We are not out of the woods yet.* I thought back.
 
+The second one tried to stand up. I placed my sword point to his throat.
+"Stay down." I warned. My voice flat, which to the uninitiated, sounded absolutely ruthless.
+…
+She was not important right now. He looked to his left, then his right. A dozen highly experienced medics and plenty of ambrosia. As long those medics weren't stoned out of their minds, they'd be able to patch a wound, and use ambrosia to heal the rest long before she succumbed to it.
+*Swing right. Parry. Disarm. Knife three inches below right breast. Puncture lung.*
+"You can't just barge in here like—" She shouted, eyes full of fury as she swung her knife.
+He executed the instructions in a good-enough sequence.
+Within seconds, she was wincing in pain and toppling to the ground, clutching the knife in her chest.
+"Tell the medics you have a puncture in your left lung, and breathe out even if it hurts." He instructed, voice calm and flat.
+She looked equally confused, angry, and compliant. Sure enough, as he walked by in search of Samson, that was exactly what she told the medics and they began treating the wound effectively. Within ten minutes, it would be little more than a bleeding cut.
+"Samson! Identify yourself!" He shouted.
+The voice echoed across the cell block.
