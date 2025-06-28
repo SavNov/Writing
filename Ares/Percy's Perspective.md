@@ -1,23 +1,41 @@
 PERCY
-**From the moment he'd seen Aidan arrive at camp, Percy had been nervous.** He'd known Aidan was different, unusual, strange. He had this aura that reminded him of Nico almost. That distant, cold look like he was a kid with way too much to carry and way too long to dwell on that.
+**From the moment Aidan had arrived at Camp, Percy knew he wasn't exactly right.** He had this aura that he'd come to expect from children of Hades. That distant, cold look—a kid carrying more than any kid should for longer than any kid can. Sixteen going on sixty.
+Just like Nico.
 
-But of course, he was Percy Jackson. Expecting things to go well for him now was like standing in the middle of No Man's Land and being shocked when somebody starts shooting at you. It had been four weeks of Iris messages with Annabeth as she helped her mom redesign Olympus after the Second Titan War had wrecked everything. You didn't realize how much you'd gotten used to having someone right by your side at all times until they were taken away, and it didn't matter by what.
+But of course, he was Percy Jackson. Being surprised when things went wrong in his life was like standing in the middle of No Man's Land and being shocked when somebody starts shooting at you. It had been four weeks of Iris messages with Annabeth as she helped her mom redesign Olympus after the Battle of Manhattan had wrecked everything. 
+You didn't realize how much you'd gotten used to having someone right by your side at all times until they were taken away, temporary or not.
 
-He was technically supposed to be at home right now, to recover from the biggest war he'd ever seen, all the friends he'd just seen die, all the faces he'd never see again.
-You know, teenager stuff.
-Then, Rachel of all people, had sent him a letter. He hadn't shared his address with her. The letter had arrived anyway.
-He prayed to Hermes that the Oracle of Delphi couldn't simply see his home address the same way it saw the future.
+He'd gone home to spend time with family, friends, his new girlfriend. As much as he wanted to believe that all the monsters would magically disintegrate once Kronos lost, he knew it wouldn't be that easy. Days spent sending hordes of straggler monsters back to the Underworld where they belonged, and once the gods knew Olympus was safe, they'd gone right back to being gods.
+*So much for that.* He'd thought, even though he'd learned a while ago to expect it.
+
+This was Mount Olympus they were dealing with. The gods only helped when pushed to the point of a spear.
+
+He'd wanted so badly to help all of them deal with the aftermath, but Chiron had given him no excuse.
+"Go home, Percy. Rest. The war is over, and as much as I admire your loyalty to your friends, you have to help yourself first. Spend time with Annabeth. Live, laugh and love. Be a teenager the way you never could."
+And for the next four weeks, Mount Olympus had sentenced their hero to something only slightly better than questing.
+
+Being home.
+*Dying is easy, young man, living is harder.*
+
+Dating Annabeth, visiting Mount Olympus, being a guinea pig—nope nope nope that metaphor was ruined for him now—for different designs. Long conversations with Dad. Seeing Grover's birthday party with Juniper. Remembering Luke and Beckendorf and Silena and Ethan and all the others they'd lost over the years. Figuring out what remembering them even meant. Leaving burnt offerings behind at Luke's shroud. Hephaestus kids putting their inventions next to Beckendorf's grave wondering if he'd like it. Even though there always seemed to be something wrong with the invention each time. 
+Clarisse refused to even go near Silena's grave.
+
+Then Rachel—Rachel Elizabeth "wrote my number on your hand in permanent marker and it's your problem now" Dare—had sent him a letter. He hadn't shared his address with her. The letter had arrived anyway.
+He prayed to Hermes that the Oracle of Delphi couldn't simply see his house the same way it saw the future.
 
 He remembered opening it, both terrified, and intrigued.
-*Trade offer: Date for presence at Camp.* With a date, the fruit, sitting at the bottom of the letter for plausible deniability.
+*Trade offer: Date for presence at Camp.* With a fruit sitting at the bottom of the letter for plausible deniability.
 All he'd been able to think was: *Annabeth is going to kill me.*
 
 Rachel, though, hadn't immediately taken him aside to reveal her message. Instead, she'd pointed to her newest shirt. "Like it? Made it myself."
-It was an explosion of color and shadow that looked like somebody had vomited all over a modern art project…and improved it by some act of Apollo. At the bottom, a girl in bronze armor summoned a lightning bolt, spear raised. Decorative depiction of Thalia, obviously, even if the weapon was a bit off-kilter. Next to it, a cell block of ornate rows with various guards in Greek and what appeared to be Roman armor carrying various weapons, similar to what he'd seen aboard the Princess Andromeda, but this time with more dramatic flair. And then, near the center of her…you know…a big red and gold forge, the vat of molten metal that looked way too much like celestial bronze next to the anvil that looked very recently used.
+It was an explosion of color and shadow that looked like somebody had vomited all over a modern art project…and improved it by some act of Apollo. 
+
+At the bottom, a girl in bronze armor summoned a lightning bolt, spear raised. Decorative depiction of Thalia, obviously, even if the weapon was… out of character. Next to it, a cell block of ornate rows with various guards in Greek and what appeared to be Roman armor carrying various weapons, similar to what he'd seen aboard the Princess Andromeda, but this time with more dramatic flair. And then, near the center of her…you know…a big red and gold forge, the vat of molten metal that looked way too much like celestial bronze next to the anvil that looked very recently used.
 With the benefit of hindsight, Percy had only now began to understood that the shirt…*was* the message.
-"It looks very nice." He said with that awkward smile. Then, in his head, he'd said about twenty phrases in Ancient Greek to Aphrodite that will not be mentioned here as they are offensive to readers of all genders, sexes, orientations, races and personality types.
+"It looks very nice." He said with that awkward smile. Then, in his head, he'd said about twenty phrases in Ancient Greek to Aphrodite that will not be mentioned here as they are offensive to readers of all genders, sexes, orientations, races and neurodivergent individuals.
 
 Then things got even weirder.
+
 Aidan had showed up, sixteen years old and unclaimed, and been different. During his sparring with Clarisse, she'd gone too far and nearly murdered him. He'd had a panic attack, while he was ahead, and then parried her killer blow so hard he'd left an inch-deep notch in the training sword. It was bronze, but still. People should *not* be able to do that.
 Now Clarisse, *Clarisse*, had apologized to him and looked utterly crushed under the weight of what she'd just done. He'd stood in the infirmary, watching the kid wake up, only for him to stare off into the ether for seven solid minutes before Percy had finally gestured for everyone to go, and Clarisse had chosen to stay behind. He'd seemed stressed and unnerved, despite pulling off the most impressive parry the Ares Cabin had ever seen.
 
