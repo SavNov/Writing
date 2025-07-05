@@ -9,6 +9,7 @@
 [[Clarisse Keeps The Peace]]
 [[Aidan Has A Conversation With Dear Old Dad]]
 [[Rachel Asks About The Shirt]]
+[[Clarisse Questions Herself]]
 [[Aidan Decides To Play Pretend]]
 [[Ares Just Needs To Be Sure]]
 [[Chiron Discovers That The Hunters Of Artemis Have Higher Priorities Than Eldritch Beings. No, Really.]]

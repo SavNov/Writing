@@ -1,31 +1,51 @@
 CLARISSE
-Clarisse had never imagined it would be *her* advocating to resolve things peacefully. She was the daughter of Ares, and she'd taken after him like a flower to sunlight. Fighting, slashing, kicking and punching her way through problems until she stood at the top of a pile of golden dust proud of her accomplishments and daring to hope that her dad was too.
+**La Rue knew that she wasn't the type to solve things with diplomacy.** Peace wasn't one of her strengths. Fighting was what she was good at. She'd taken after Ares like a flower to sunlight, after all. Swords and spears, punches and kicks, jabs and dodges, hacking and slashing, dicing up her problems into a pristine pile of golden dust below her was who she was. Proud of her accomplishments and daring to hope that her dad was too.
 
-Fighting for peace, taking a room full of conflicting voices who all wanted their piece of the pie *now, now, now!* was Miss La Rue's job. Miss La Rue, C-Suite Exec and corporate litigator that made silencing screaming voices with nothing but a "Let's all come to our senses for a moment and handle this matter like civilized people" and a coffee machine look easy.
+Peace? That was Miss La Rue's job. C-Suite Exec and corporate litigator. She made silencing a dozen screaming voices with nothing but a "Let's all come to our senses for a moment and handle this matter like civilized people" anda  coffee machine look easy.
 
-Looks were deceiving. Especially when no one was really paying attention.
+Clarisse? Well… she was just Little Rue. Scared little girl who'd spent her childhood hiding from the monsters in the dark, some real and some not, pretending everything was okay, pretending to be strong when she knew she wasn't. Leaning into the adrenaline and the anger she felt when she went into battle, that familiar rush when she picked up a sword, feeling strong and powerful and like Clarisse La Rue, Drakon Slayer.
 
-Maybe that was why this new half-brother of hers could win and immediately go into a panic attack. He was shouldering the same burden that she was. A child of the war god who didn't want to fight anymore.
+Even when she'd been up for 36 hours straight to avoid the nightmares that always came with being a half-blood, and now the ones that came from the girl that had died in her arms 4 weeks ago, and felt like Clarisse La Rue, Drakon Slayer was a completely different person.
 
-She kept her training to a minimum, using practice swords and standard-issue spears when she needed to, never wearing her real battle armor. Ares hadn't replaced her special electric spear after the Battle of Manhattan. She knew why.
+The memory stabbed at her like a knife even as she fought to keep it at bay. Just before she regained control of herself, she saw it. Luke's face. Those unnerving eyes. That swirling mix of gold and green. It wasn't really Luke. But if there was even a chance he was still in there…
+…that millisecond of hesitation had given a Hyperborean giant just enough time to freeze her solid.
 
-*I don't deserve it. I need to redeem myself first.*
+*I've killed more monsters in the past twenty minutes than I've killed in my entire life. I've killed so many campers that turned sides. But I draw the line at killing one of my own. I've lost too many people today for that.*
 
-She'd charged that drakon four weeks ago now and learned the difference between bravery and cowardice. She hadn't charged it—no armor, just an electric spear and sheer rage—because she knew she'd win. She'd charged it in a suicidal Hail Mary because she no longer cared if she lost. Now that she looked back, all she'd cared about was making that drakon pay for Silena.
+She walked up to the Hermes campers who were preparing her new half-brother for transport. She gave her best impression of her mom. Icy corporate litigator. She wondered if she could get away with a calm and flat remark without it seeming *off*. "Yes, yes, hand him over already!"
 
-*I will die here and now before I let myself believe you died for nothing.*
-**La Rue knew that she wasn't the peaceful type.** Fighting was what she was good at. Swords, spears, punches, kicks, jabs and dodges. That was her strength. That had been what got her through it all. Through mom, through school, through monsters, through that first night when Hedge had been nursing that dracaenae fang wound and on the verge of death, and through making that Drakon pay for taking Silena away from her.
+The Hermes campers, and unclaimed campers, quickly raised their hands in surrender and handed him over. She tossed Aidan over her shoulder like a sack of potatoes. Her legs shook badly as she remembered how many dead campers she'd carried to medical tents in Manhattan that day just like this.
 
-But seeing so many weapons drawn, seeing Aidan issue that order, disarming two hundred opponents at once, she had known beyond a shadow of a doubt that she couldn't mentally take another big fight. She'd lost too many people on that day four weeks ago. Every time she drew her weapon, she smelled Drakon blood like it was standing right in front of her again.
+*You're going to be okay.* She'd told a child of Hephaestus. They'd both stared at the gaping hole where his femoral artery should've been. They'd both knew she was lying through her teeth. He'd appreciated the gesture anyway. Ambrosia couldn't heal the face that every drop of blood in his body was now rotting on the pavement in sixty foot trail. He'd been dead in under an hour.
 
-For the second time in ten years, she felt like a tiny little girl again. Scared and alone. Telling herself she had to be strong.
+*You can't lose it. Not here. Not with all of them watching. Be strong, Little Rue. Stick to what you're good at.* She chided herself, fighting the memory back.
 
-So she'd given an order of her own. They were to resolve this peacefully.
+*In. Out. Count to five. 1-2-3-4-5 in… 1-2-3-4-5 hold… 1-2-3-4-5 out… good…*
 
-It was what Silena would've wanted, and that was all that mattered to her now.
+She took a step, then another, willing herself to smile. Ares Cabin wasn't too far away. She saw another Hephaestus kid running away from the Ares Cabin with pure glee in his eyes. She rolled her own eyes. *I don't have time for this…*
 
-*Clarisse La Rue died in the Battle of Manhattan.* She thought as she'd given Sherman Yang that look after she'd given the order for peace. *I'm just the embers of a dead girl.*
+She stepped across the foyer. Of course, the kid had disabled the turret. But why?
 
-As Head Counselor of Ares Cabin, the most aggressive and competitive cabin, campers had been surprised that Sherman Yang would let one of their members, even if she was the former counselor, tell everyone to stand down and prevent everyone from having a good old-fashioned fight.
+She looked down to see if he'd disarmed the landmines. He hadn't. Instead, in thin lines of celestial bronze, letters were carved into the stone floor of Ares Cabin. One word. Eleven letters.
 
-The look on his face had said it all: *Do you think I'm crazy enough to pull rank on Clarisse La Rue?*
+**Oathbreaker.**
+
+The place, in typical Ares fashion, was built like a shotgun house. Kids could simply aim their weapons down the relevant hallway and blast any intruder down the fast track to Hades. Fast. Efficient. It had also gotten roughly five of their own killed in late-night accidents where ID was hard and kids were tired. So far.
+
+She found an empty bunk waiting near the back, a little slot of a place, like something out of PT. She placed the unconscious body down on it. She swung around the wall corner, into her own space, and stared at the photo of Silena. She didn't dare move it from her bedside even if looking at it brought the memories back. Next to it, a photo of Luke, standing in the training arena, teaching her how to use a spear for the first time.
+
+*You keep a photo of the enemy on your bedside table.* She thought. Then she found a tiny piece of her old snark. *Yes. I do. Cry me a river.*
+
+Next to them both, the one thing in her life that was finally going her way: Chris Rodriguez. Brown eyes, black hair, with that familiar strong Hispanic body that had definitely not hurt his chances. And they were dating. In twenty minutes, she'd flip the coin in the air for their nightly Iris Message. He was so patient and kind that she knew she didn't deserve him, either, but he refused to let her break up with him over guilt.
+
+"You were right." She whispered, like she always did to the photo. "You sided with Percy. Not with what I deserved. Because I deserved to die in the Battle of Manhattan."
+
+She laid down on the bed, not ready to take off her training armor yet. There would be fighting for a few hours, once the weapons came back. She needed to be ready for that. She needed to stick to what she was good at.
+
+She looked at her bloodshot eyes in the mirror as weeks of on-and-off sleep deprivation wore her down.
+
+It was moments like these, when the world went quiet and her mind finally stopped racing, that she began to wonder if she really had died in the Battle of Manhattan. If that Drakon had slashed her to ribbons, she'd gone to the Underworld, landed herself in the Fields of Punishment for denying Camp Half-Blood its' best fighters, and had been condemned to live the last day of her life on repeat forever.
+
+Had she simply been here so long that she'd forgotten she was dead?
+
+*Stick to what you're good at. Kill the monsters. Even if the monster is you.*

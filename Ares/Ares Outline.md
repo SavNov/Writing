@@ -1,29 +1,18 @@
 ## ACT I — THE LIE ESTABLISHED
 
-**Theme:** “I must hide who I am to protect others and myself.”
-**Fatal Flaw:** Apathy — he believes the ending is already written.
-
 ### Opening Image
 
-Aidan is in a school library, ducking through the stacks while a monster stalks him. He doesn't know why it wants him dead, but it has something to do with this demigod thing. The Voice guides him through dodging, telling him it's a Flame Spirit. It's been like this, school to school, for three years.
 
-Then, finally cornered, the flame lunges on him, kicking and punching, and he can feel himself burning. It's terrifying and overwhelming and he just wants it to—**STOP!**. And then the nightmare that hasn't happened since he was 12 strikes again. He doesn't feel hot anymore. He feels cold and heavy as he pulls the thing off of himself like a sack of potatoes and throws it *through* a table. Its mortal form, that ever-shifting thing that everyone else sees, is nursing several broken ribs, but isn't dead.
 
 ### Inciting Incident
 
 Brought to Camp Half-Blood by...a teenage demigod grunt in battle gear who says her name is Clarisse La Rue. Or, more accurately, taken. His questions are ignored, and if The Voice hadn't assured him that he was going to a place where he would be safe, he'd already be trying to find a way out of this kidnappping. He can tell she's confused though, because she keeps muttering: *How did he make it to Sophomore year?*
 
-### Backstory
-
-* Age 12: Loses control of strength when cornered by bullies.
-* Age 13: Voice begins guiding him through monster encounters.
-* Three years of survival and control under this voice’s guidance, believing it’s instinct or maybe God. Really hopes it's God because, y'know, practicing Christian.
-
 ### Catalyst
 
 He's walked through the various training areas, as Chiron attempts to find out his story and who his parent is and how the hell he's managed to survive to 16 without help. He makes the decision NOT to risk being institutionalized like his mother warned he might be if he started telling people he was hearing a voice in his head that wasn't his own.
 
-Despite throwing a Flame Spirit through a table mere hours ago, which he still is exhausted from, he is utterly hopeless at fighting. The Voice allows him to dodge just enough to avoid being seriously injured, but not an inch more.He keeps hearing Greek phrases of monster names and, after serious effort, translating them in ways that are technically correct but miss the nuance. Chiron's spidey senses are activated. He recognizes the pattern of the eras, and tries speaking in Kione Greek. Aidan understands.
+Despite throwing a Flame Spirit through a table mere hours ago, which he still is exhausted from, he is utterly hopeless at fighting. The Voice allows him to dodge just enough to avoid being seriously injured, but not an inch more. He keeps hearing Greek phrases of monster names and, after serious effort, translating them in ways that are technically correct but miss the nuance. Chiron's spidey senses are activated. He recognizes the pattern of the eras, and tries speaking in Kione Greek. Aidan understands.
 
 In the background, a dread settles through the camp. He's 16 and unclaimed as far as they know. He shows no signs of memory loss or amnesia. So which god broke the oath?
 

@@ -41,8 +41,6 @@ It is wonderful being so emotionally inexpressive by default. People don't reali
 
 "Alright…" She said, playing ball with this development. "…let's see if you can do it again."
 
-
-
 *This is a terrible idea.* I thought, decked out in battle gear, heavy shield and armor, trying not to drop my sword…again.
 
 *Have a little faith in yourself.* The voice suggested. *You've got me to make sure you don't die.*
@@ -57,15 +55,11 @@ The arena was a large space, about sixty feet in diameter with dozens of benches
 
 *She was wearing training gear back there?* I thought.
 
-
-
 "Just…do what comes natural to you…" She said, like I was an assignment she was not eager to be left with. I was the newbie. People like her were not supposed to be stuck sparring with people like me.
 
 She raised her own sword. She started with the basics. A slash to my left, a slash to my right. I sidestepped so it wouldn't simply smack me in the face.
 
 Her technique began to advance, and I began to falter.
-
-
 
 "He'd doing great for a newbie!" One of the Ares campers called out from their sparring match across the arena. Each slash of metal against metal made my ears throb in pain.
 

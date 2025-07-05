@@ -11,11 +11,15 @@ Aidan allowed his consciousness to drift. Most demigods did this unintentionally
 
 Especially not when you were him. Fully mortal, fully divine.
 
+The Egyptians called it the Du'at. The Greeks called the realm of Hypnos.
+
+He didn't have a name for it yet. He just knew he found it very unnerving at first.
+
 A titan, Krios, was feet away from his mortal body, playing a game, seeing who was better. Taunting the demigod that had gone to sleep. But he wasn't asleep. Those final words weren't the words of a sleeping boy.
 
 "Okay. I'll play." He'd said.
 
-He willed himself to stand in the middle of that forest. Hecate was bathing. A Greek tragedy that had played out a dozen times before. Pig. Sheep. Goat. Deer. He stood with his back facing the hut.
+He willed himself to stand in the middle of that forest. Hecate was bathing. A Greek tragedy that had played out a dozen times before. Pig, Circe. Deer, Artemis. He stood with his back facing the hut.
 
 That wasn't the story he'd grown up with, though. Noah was drunk, and naked. His son knew. His son walked into the tent to ask his father a question. He'd seens Noah naked, a transgression against the Lord. Someone would have to pay. So he was following in the wisdom of the other brother. Walking backwards, towel in hand, giving her time. He knocked with his foot.
 
@@ -523,3 +527,4 @@ When the smoke cleared, and the monster was gone, Ezra clung to Aidan’s leg, t
 Aidan looked at him—this terrified boy who had seen what others ignored. He knelt down.
 
 **“No,”** he said softly. **“I’m just a boy who refuses to let a boy be ignored when he’s most afraid.”**
+
