@@ -1,0 +1,94 @@
+# The First Order
+## Act 1
+### Opening Hook
+- Rey is a slave girl born and raised on Tatooine by Toto, nephew of Watto.
+- She has finished scouting out the location of her most recent target, and now enters the abandoned building, telling Toto over comms to send the BB-8 droid to her designated drop-off point with the intention of confirming buyer satisfaction and collecting payment.
+- She knocks the little girl out with a stasis rifle, and places her in the back of a speeder. The name doesn't matter. It was either Rey or her. She brings the girl to the drop-off point, where the girl waits in a hole and Rey speeds off just as a group of Romeros arrive.
+- Rey has barely had time to gather her bearings before she receives her next task:
+	- Before Rey even saw the holoscreen and its contents, the fact that Toto was talking to her told her this was a special assignment.
+	- "Prepare yourself, hunter. A special assignment has arrived. A boy."
+	- "A special assignment?" The picture of a boy who looks unnervingly similar to a young Luke Skywalker appears in the projected image of the BB-8 droid.
+	- "A Force-sensitive child. The Republic of Tatooine has agreed to cancel the execution in light of our buyer."
+	- Rey pauses for just a second.
+	- "Special target. No kidding."
+	- Toto said nothing about the target's suspected whereabouts or any useful information. What wasn't on the holoscreen bulletin already was for the hunter slave to figure out instead of people like Toto.
+	- "What was so special about the girl?"
+	- "The Romeros believe she has a connection to the Royal family of Alderaan."
+	- "Does she?" Rey asked.
+	- "I do not know and I do not care. Forty-five thousand Republic credits is forty-five thousand Republic credits. If the banker is willing to accept them, it isn't my problem."
+	- A beat passed.
+	- "Do you have ethical questions, Hunter?"
+	- "No, of course not."
+	- Rey had been a hunter for seven years. Ethical questions were an occupational hazard she did well to avoid.
+	- "I'm just concerned. If this girl really did survive her home planet being blown to pieces, a stasis bolt from thirty feet may not be enough to keep her down for the Romeros."
+	- Toto considered ethical questions to be beneath him.
+	- But his target running away before he could get paid was right at his level.
+	- "I'll look into it."
+	- And so as Rey sensed in that extension of herself she suspected of being the Force that her target was aiming to be at the evening podraces, she looked at the morning suns and sighed. All this boy had done to deserve execution in the eyes of the Republic of Tatooine was be a Force-sensitive child. Forced them to remember the legacy of the Skywalkers.
+	- BB-8 rolled back the way it had come, back to Toto. She pocketed the statis rifle and used a flick of her finger into the Force to put the safety back on. She had committed the same crime this boy had. This wasn't right. This wasn't justice. So she repeated the mantra to herself that had kept her sane since the age of 7.
+	- "It's either him, or me."
+	- And she rode her speeder back towards Tatooine's biggest city to intercept her target at the pod races.
+	- Because she'd learned a long, long time ago that freedom was not on Tatooine. It was in a galaxy far, far away.
+	- And this time, that was no fairy tale with a knight and a princess and a wizard.
+	- It was a story as real as the stasis rifle in her bag.
+- Rey goes to the podraces, and things begin to go wrong:
+	- She misreads a Force-powered cue, and searches the wrong alley, giving the boy time to flee.
+	- The boy keeps knocking things over and using the Force to put the world in her way as she pursues.
+	- We basically ask the question of what if the protagonist of the story WAS the hunter trying to nab young Luke for a paycheck? And the boy does what Luke would normally do, and puts Rey through the antagonist bounty hunter treatment?
+	- Eventually, he has the gall to head INTO the luxury podracing view boxes, so she has to give pursuit, thoroughly annoyed at the fact that she's been chasing the same boy for thirty minutes now and he's getting away.
+	- As she ran through the booth, the kid vanished through a set of curtains.
+	- *Why can't this day go my wa-* She thought, only to hear it.
+	- "Stop. Who are you, little girl?" A feminine voice asked.
+
+	- Rey was caught between a blaster and a curtain. She sensed that the woman asking the question had a blaster and was not afraid to use it. At the same time though, this mysterious woman wasn't talking to her like she was property. It was a strange feeling. To be treated like a person. She wasn't sure she liked it. She looked at the curtain longingly for a moment, stopped in her tracks like a good slave that knew how to follow orders without question.
+	- "Rey. My name is Rey." She said.
+	- She felt a thousand pounds of tension ratchet up as she turned around.
+	- "Hello, Rey. I am Representative Leia Organa, here on a diplomatic mission to Tatooine for the New Republic. It's nice to meet you." The woman, Leia, said, meeting Rey's gaze.
+	- There was no way. This was the woman elders had been telling her stories about since she was little.
+	- "You… are Leia Organa?" Rey's eyes widened.
+	- *Oh no. Oh no nononono.*
+	- "Yes, I am Leia Sk-" Leia said only to stop as she heard a voice in her head and realized it wasn't her own.
+	- *Not Skywalker.*
+	- It was Rey's.
+	- It took Leia a moment to gather her bearings. She straightened herself.
+	- Because Rey knew that being a Skywalker was a death sentence on Tatooine. Because Skywalker meant change. And change was bad for business. And on Tatooine, business was king.
+	- "Sorry, I forget that some people have certain… sensitivities in the Outer Rim." Leia confessed. "Leia Organa."
+	- Rey couldn't hear the word 'sensitivity' without her heart skipping a beat.
+	- Rey's and Leia's eyes met for a full ten seconds.
+	- *My target is getting away.* Rey thought. She could sense the boy hiding in a trash chute somewhere down below.
+	- "Now, as I was saying to you before, Prime Minister-" Leia said, only to be cut off, not by a girl literally charging headfirst through the box, but by the Prime Minister himself.
+	- "Yes, yes, Representative Organa. I heard you the first time. I am considering your offer." Prime Minister Leto said, blue eye twitching in annoyance.
+	- "I'll be going now-" Rey said, attempting to leave, but Leia tugged at the back of her shirt just a bit.
+	- Rey felt like a dog being put on a leash so it couldn't chase a bird.
+	- "This conversation… " Leia gestured to the Prime Minister, "…needs time to foster. Changing hearts takes time."
+	- *Trash chute. Now he's fleeing. I need to move.*
+	- "Tell me about you." Leia said softly.
+	- *Oh you have got to be kidding me.*
+	- "I'm an orphan. My parents died right after I was born. I've been a slave all my life." Rey said quickly, trying to satisfy the woman's curiosity AND try not to lose too much progress.
+	- Leia physically staggered at the amount of emotion present in that sentence. Sentence. Then she steadied herself.
+	- "Well then," Leia said, then eyed her.
+	- And bit back.
+	- "Perhaps you deserve better. After all,"
+	- Leia smiled softly.
+	- "I know a thing or two about what it's like to be in a trash chute."
+	- The two Force users shared a look that could only be interpreted as 'How the Force do you know about that?'.
+	- Rey physically staggered back.
+	- "How do you—" Then she steadied herself. "—nevermind."
+	- Leia just had to drive in the nail a little further, apparently.
+	- "How much would it be to purchase the girl?"
+	- "I don't know, Representative Leia. What does little Rey believe she's worth?" Toto smiled.  
+	- It was a horrible question. To give a high answer like her ego demanded would mean leaving this Jedi no hope of saving her. To give a low answer would be admitting she wasn't worth very much at all.  
+	- She eyed the dozens of podracers below on the field. Then she thought of it.  
+	- "1800 Republic credits." She said. Leia looked very nervous for a moment.  
+	- 1800. A number every soul on Tatooine had written on their heart. The third place winnings for a podrace.  
+	- "That... is a significant amount of money for one girl." Leia admitted.  
+	- The woman's day clearly had not been going well so far, and this was getting even worse.  
+	- "I am not... him." Leia confessed. Rey nodded.  
+	- "You don't need to be Anakin Skywalker to win a podrace, Representative." Toto cackled. "Though it certainly helps."  
+	- Slavers did not care about truth. They spouted whatever story suited their ego, their bank account, or both. Skywalker was the enemy of business when it came to enslaving Force-sensitive children or executing them or selling them for pennies. Anakin Skywalker was a token of pride when it came to podraces, the symbol of perfection... and the one everyone tried to emulate.  
+	- The contradiction was apparent. But greed and ego were stronger rulers in Tatooine than the New Republic could ever hope to be.
+	- She knew Leia hadn't meant Anakin, though. No. She'd meant the other myth that Rey had grown up hearing stories about. Han Solo.
+	- The madman who had done the Kessel Run in just 12 parsecs. Something she'd heard stories of veteran spice runners trying, and dying, to pull off.
+	- Speaking of spice runners…
+	- "I think I know where you can find a pod." Rey whispered.
+	- If there was anything constant among rich people, it was forgetting where they put all their stuff. Normally the pod racer hangar had ten or twelve rusty pods left over for those unable to afford one of their own to use. The owners had forgotten about them completely. The rule among slaves was that you fixed whatever you broke when you used one.

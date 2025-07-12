@@ -600,3 +600,404 @@ The blaster bolt a hundred feet away hit the quarter inch wide vent port dead-ce
   
 "You- you cheated!" The racer sputtered in fury.  
 "No, you cheated." She replied, sporting Han Solo's familiar grin. "I cheated *better*."
+NARRATOR
+As she dove through a huge curtain, she slid along the table only to hear a huge explosion issue from the direction of the podracing course.
+
+*Welp,* Rey thought, *she's dead.*
+
+She ran down the middle of the market, but she sensed it in the Force that she knew exactly where the kid was going.
+
+The greatest living contradiction on Tatooine.
+
+Anakin Skywalker's Memorial of the Jedi Temple.
+
+The man had been dead for sixty years now, and being a Skywalker was a capital offense on Tatooine.
+
+Capital didn't quite carry the same meaning on Tatooine. Either a crime only punishable by death, or… someone getting rich by pretending.
+
+She turned hard left and ditched the boy, heading down street after street as the cobblestones beneath her feet scattered.
+
+The boy thought she'd lost him, misread him and was now running the wrong way.
+
+*I know where you're headed, boy, and I know how to get there faster.*
+
+And so she ran.
+
+...
+
+Then she heard a droid roll up, and dropped the knife instantly, watching it clatter to the floor.
+
+"I wasn't doing anything!"
+
+Rey watched the little droid by the name of BB-8 roll up to her, and lower itself to the floor. This was usually how she received orders and a new kid to grab, so she knelt just like she'd been taught.
+
+The holotape played. A man who looked ancient and powerful loomed above her as little shadows played against the thick steel walls behind him.
+
+"This is Holotape 1-1-5-7-4 of the recent initiative. In case of theft, I will not reveal everything. The pieces are too sensitive to reveal now. I keep this as a record for my apprentice for the day I know is coming. He will understand what it all means. The initiate, though astronomical in cost, has been successful. Everything is in place for us now. We merely need to gather it all together and find how the puzzle ought to be solved." That cold, dead, raspy voice made her blood run cold.
+
+"To any Sith that still remain, know this: My solution to the Tragedy of Darth Plagueis the Wise has come to fruition. I merely must learn how to build it."
+
+Rey stopped, clutching the bare rock so hard her knuckles were white.
+
+Palpatine? A Sith? Was this why everyone seemed to fear them? The only Seth she'd met were crazy cultists living in the desert with no connection to the Force whatsoever. But she had a nasty feeling that this one was more powerful than she could even understand.
+
+Then a voice broke the silence. A young woman, though somehow... not.
+
+"Annie? Annie, where are you? It's cold in here, and it's dark. I don't like it. And there's... this man in a suit. I can hear him… breathing."
+
+Annie? Like Anakin Skywalker? Everybody had said he was a great Jedi, but he died in Order 66 like most of the rest of them. Killed by Darth Vader decades ago now. How was he still alive? And who was the man in the suit? She couldn't see him, but the woman seemed scared.
+
+There was only one woman who called Anakin 'Annie' though. And that woman had been killed by Darth Vader before he had even been known by that name.
+
+Rey and the boy looked at each other.
+
+She was a hunter. The target was *right there*. Her stasis rifle was in her bag. One shot would do it.
+
+Then they both heard footsteps. She sensed… Leia?
+
+*How is she still alive?* Rey thought, utterly bewildered. *First I capture a little girl from Alderaan who survived her planet exploding, now another one survives a her pod exploding.*
+
+Rey dropped her bag on the ground and placed her hands in the air.
+
+These Alderaanians were practically indestructible. She silently vowed never to fight one. They heard soldiers.
+
+*And now she's going to kill me. Great.*
+
+"Um… Rey…" The boy said, and at this point she didn't even bother to question how he knew her name. "…there are too many of them. What are we going to do?"
+
+She eyed the BB-8 droid.
+
+"I'm going to be dead in five minutes either way." She sighed. "Now, we run!"
+
+She took the boy's hand.
+
+And bolted like a bat out of Hell.
+NARRATOR
+Three days, two speeder trips, and one stasis rifle had brought her to this moment.
+
+She approached the abandoned building, someone's home once, her boots completely silent in the shifting sand of Tatooine. The structure was a strange combination of sand, mud, and brick with no windows, only holes where windows had once been.
+
+She pulled the old communicator out of her pocket, pulling the mic up near her mouth so she would not be heard.
+
+"Send the droid to the designated drop-off point to confirm the satisfaction of the buyer and collect payment. I will capture the girl shortly." She said, voice steady and calm.
+
+She pressed herself low to the ground, letting that same sense of *other* guide her. Her legs straight, her arms bowed at the shoulders as she opened the Rylothian-leather bag and slowly pulled out the stasis rifle.
+
+A deep breath in, a deep breath out. She needed to be steady.
+
+She placed the butt of the rifle against her chin as she loaded the firing pin of the stasis coil into alignment.
+
+She had to admit it was a good place to hide. The place had been abandoned years ago, right at the turn of the war, and hadn't seen foot traffic in probably three good decades. Not since some teenager had come to the place to pay respects to his dad. She hadn't been paying much of attention.
+
+She still had no idea why someone would turn a slave quarters into an apartment, but her life was easier when she didn't ask questions.
+
+She eyed the window through the iron sight.
+
+*Not yet. It isn't time for morning meal yet.*
+
+The twin suns were still right at the horizon like they were trying to swallow the desert planet whole.
+
+It would take her master Toto a good several minutes to deploy the droid. She was counting on it.
+
+She took her binoculars out of the bag and waited. Watched. The breakfast table wasn't ready, it was empty, the girl hadn't eaten yet. She hadn't eaten yet either. Hunger made the senses sharper, highlighted every sensation, made tracking easier.
+
+The sight raised an inch on the up breath, and fell an inch on her down breath.
+
+Five minutes later, her watch buzzed. Morning meal. She heard the footsteps, and the same sense that had made her such a good hunter for seven years of her life now told her it was time. Her fingers pressed against the warm transparisteel of the safety. It clicked off. She moved the butt to rest to the right of her right shoulder. Her arm steadied the weapon.
+
+*Focus.* She thought, and repeated the mantra that had kept her alive since she was eight years old, and had made her the best tracker and hunter on Tatooine. *It's either her, or me.*
+
+The moment she saw the girl's face, she was eerily reminded of another girl. That same shock of brown hair, those pigtails. But that wasn't possible. They'd been gone for thirty years now.
+
+*Inhale. Exhale. Inch up on the up breath. Inch down on the down breath.*
+
+The girl placed her bowl as quietly as she could on the table. But she didn't take the shot yet. She was going to do this right. She was going to be patient. Because that was *why* she was the best hunter and tracker on Tatooine.
+
+The girl sat down at the old table. The light made her look almost angelic, but maybe that was just her own hunter sharpening the light. There were no angels on Tatooine.
+
+Only demons. Grinning.
+
+The hunter inhaled, raising the body of the rifle just an inch higher, waiting for the moment she knew would come.
+
+And then the girl put the spoon in her mouth, lowering her head to be careful not to spill it, and the hunter seized the opportunity.
+
+The hunter exhaled, putting the iron sight at just the right angle as it came an inch down again. And on the down breath, she pulled the trigger tight. A tiny pulse of blue zapped from the rifle, down the barrel, hurtling through the air at a speed only a mind like hers could comprehend. It pinged against the back of the seven or eight year old's head, and she dropped like a stone, her head falling into the bowl peacefully.
+
+She placed the rifle on the ground next to her as she rose, silently, to her feet, her steps both entirely silent from how she moved and padded by the sand of the desert world.
+
+She crossed the threshold. She picked up the girl, carrying her like a sack of potatoes over her shoulder, crossed the threshold again, and diligently placed the young girl into the cargo bay of the speeder she'd arrived in.
+
+She picked up her rifle off the ground, and re-activated the safety with a flick of her wrist and a bit of magic.
+
+She hopped in the driver's seat.
+
+The journey to the drop-off point took about five minutes. She brought the speeder to a perfectly smooth stop, the girl still sleeping peacefully, and found the six foot hole she'd found the day before. And then, turning the speeder around, she lowered the girl's sleeping body into it without drawing so much as a snore.
+
+Accelerated cleanly. Ten centimeters per second. One meter per second. Five meters per second as she gained distance.
+
+Within minutes, she knew, the Romeros would arrive to receive the girl for whatever it was they were buying her for, and send payment to Toto.
+
+"I am Rey, slave of Toto." She told herself, with the tiniest of smiles. "And I am the best hunter and tracker on the planet of Tatooine."
+NARRATOR
+Rey could not stop thinking about that girl. Looking so much like a species she had thought had gone extinct three decades ago.
+
+She stared up at the sky as her speeder crossed the hot dunes, spinning up dust behind her as she rode. She made the familiar ninety degree angle with her fingers against the morning sky, over the exact spot everyone had known the thing had stood.
+
+The old Empire had once had a name for it, she knew, but that wasn't what it was known for now. It was known by what it had done.
+
+The Alderaan Killer.
+
+And the parents of the girl she'd just put a stasis bolt in may have come from it.
+
+But before she could dwell on that—
+
+Her communicator beeped. Even before Rey saw the holoscreen and its contents, the fact that Toto was talking to her told her that it was a special assignment. She stiffened for just a second as to what that would mean, then calmed her nerves.
+
+*Inhale, exhale. Up breath, down breath.*
+
+"Prepare yourself, hunter. A special assignment has arrived. A boy." Toto said, voice manner-of-fact like usual. He was the master. The best hunter and tracker on Tatooine was still a slave that he served orders to without thinking twice about it.
+
+"A special assignment?"
+
+She raised an eyebrow just a millimeter as Toto's rough and tumble face filled the screen. To the left of it, details of the assignment and possible locations, all of which could be ignored for now as she could simply read up on them later.
+
+The image of the boy in the right side of the screen made her forget to breathe.
+
+Boyish, blonde, with a familiar smile   and those blue eyes. Different, yes, but she knew exactly what Tatooine leadership would think. She could sense what Toto was going to tell her even before the words left his mouth.
+
+"A Force-sensitive child. The Republic of Tatooine has agreed to cancel the execution in light of our buyer."
+
+She paused for a full three seconds.
+
+"Special target." She muttered. "No kidding."
+
+Toto said nothing about suspected locations or any useful information. Any information that wasn't on the holoscreen bulletin was for the hunter to have to figure out instead of people like Toto.
+
+She thought back, remembering the girl she'd just shot.
+
+"What was so special about the girl, if I may?" She asked.
+
+Toto seemed suprised that she even cared.
+
+"The Romeros believe she has a connection to the Royal Family of—" He said, only for them to finish the sentence together.
+
+"Alderaan."
+
+Toto looked mildly surprised.
+
+"I take it she looks the right species?"
+
+Rey nodded.
+
+"Does she?" She asked, not really knowing why she cared about one eight year old girl.
+
+Toto shrugged, wiping food off of himself with a napkin. He was eating breakfast. Rey was 'talk to over breakfast' level of urgency. Not that she expected anything better.
+
+"I do not know, and I do not care. Forty-five thousand Republic credits is forty-five thousand Republic credits. My banker accepts them, so I will too."
+
+A beat passed between them.
+
+"Do you have ethical questions, Hunter?" He asked.
+
+She actually scoffed.
+
+"No, of course not."
+
+Rey had been a hunter for seven years. Ethical questions were an occupational hazard she did well to avoid.
+
+"I'm just concerned is all. If this girl's parents really did survive their home planet being blown to pieces, a stasis bolt from thirty feet may not be enough to keep her down for the Romeros." She explained.
+
+It was one of the reasons she was concerned.
+
+It was not the only reason.
+
+Ethical questions were beneath Toto. But his target running away before he could get payment for her? That was right at his level.
+
+"I'll look into it." He assured her, calling an R5 unit to himself.
+
+He cut the communication off before she could reply.
+
+Rey closed her eyes, gloved fingers resting smoothly against the stick of the speeder. In that extension of herself she knew to be the Force, she listened and waited. A boy was hidding out in the market. Late evening. She recognized the spot. The place behind all the booths where men and women gambled on the podraces.
+
+Today was a special day. The biggest event of the year of the most popular and celebrated sport on Tatooine.
+
+Podracing.
+
+And the Anak in 10. Renamed in honor of the nation's all-time most famous podracer: Anakin Skywalker.
+
+The contradiction baffled very few. On Tatooine, being Force-sensitive like she was was a crime punishable by death. Skywalkers made change. Change was bad for business.
+
+And on Tatooine, business was king.
+
+So thirty years ago, after another Skywalker had destroyed the Death Star, destroyed the Empire, and Tatooine's wealthiest men who could no longer sell their ships to it, Prime Minister Stout Gunray of the Republic of Tatooine had promised the nation would never change again. Being a Force-sensitive child was now a crime punishable by execution. He had described it, she'd been told, as "Cutting of the Skywalker line at the roots".
+
+It wasn't right, obviously. It wasn't justice. It was a mass execution of innocent children so wealthy men could stay rich.
+
+*Breath in, breath out. Up breath, down breath.*
+
+And as she rode her speeder across the hot flats of Tatooine back towards the city, her finger brushed the stasis rifle in her bag. And she repeated the mantra that had kept her alive since the age of eight.
+
+*It's either him, or me.*
+
+Because she'd learned a long, long time ago that freedom was not on Tatooine. It was in a galaxy far, far away.
+
+And this time, that was no fairy tale with a knight teaming up with a wizard to save a princess.
+
+It was a story as real as the stasis rifle in her bag.
+NARRATOR
+Over the course of her speeder journey back to the city, the twin suns had allowed Tatooine to borrow their rising morning light and now insisted that the planet pay the interest.
+
+Like thirty years ago, Tatooine defaulted, and now early evening had fallen upon it as the city's thousand lights began their hourly payment plan.
+
+Maybe that was why Tatooine was a desert. Maybe a forested world had taken light for granted and been pummeled by an astroid a thousand generations ago, thousands of years of compounding interest grinding the planet into dust and sand.
+
+Not that she had any way of knowing. Tatooine had invested in many things. Their actual history was not one of them. The private sector didn't care about that. Though that was misleading. That assumed there was a public sector.
+
+Rey slowed her speeder to a perfect stop in the grand market, less than a mile from her destination.
+
+This place was the closest thing to a public sector Tatooine had.
+
+Her boots did not leave marks in the desert sand as she stepped up to a young merchant. She was a hunter. Being a ghost was the ideal.
+
+*A true hunter does not call attention to herself.* She thought.
+
+"Two." She said, not bothering to clarify because the merchant in question only sold one thing: Grain cakes.
+
+Hunger sharpened the senses, heightened sensations, but is also dulled the mind. And if this boy truly was a Force-sensitive child like her, this was not going to be easy.
+
+She watched the man bake the next batch as he grabbed two fresh off the stone and handed them to her. She picked it up, leather gloves dissapating the heat as she took a bite out of it.
+
+"Put it on Toto's tab." She said neutrally.
+
+The merchant marked it in the ledger.
+
+"Not that it's my business… " The merchant began, and she anticipated what he was going to say before the words left his mouth. It was always the same thing with merchants.
+
+"Correct. It isn't." She said, managing to shut the man down in three words.
+
+"Watto and his stories… " She muttered, taking another bite of grain cake.
+
+And then, five things happened at once as if the immortal spirit of Watto had personally showed up to take vengeance.:
+
+1. A young boy ran by her at ludicrous speed and fled through the market. Her hunter vision decoded the blur in-post: Boyish, blonde, with a familiar smile.
+2. He pushed over a huge cart of sausages in her direction, which she managed to sidestep just quickly enough for it not to crush her, but left her buried in sausages.
+3. The merchant behind her grew very angry at also being covered in sausages and picked one up, throwing it at where the boy had just been.
+4. This rogue one hit another merchant in the market, who, wiping the wet sausage out of her booth, looked around to identify the culprit, only to see the boy.
+5. The boy pointed at Rey, smiled, shouted "Food Fight!" like a madman, and of course…
+6. Every single child in the entire grand market joined in.
+
+It was at this point, buried in sausages up to the waist, and surrounded by angry merchants and flying food, that she considered this Force-senstive child was worth capturing.
+
+Because right now, letting him be executed by the Republic of Tatooine seemed pretty darn fair.
+
+She stepped forward into the utter madness and had only five words to say.
+
+"Well played, kid," She groaned, hating how badly she wanted to smile, "well played."
+
+Then she did the only thing you really could do when you were wiping wet sausage grease off of your uniform.
+
+She ran after him.
+
+Taking fruit on one side and meat on the other, she ran between food carts, merchants and shop keepers, ducking and dodging and weaving through the streets of the grand market.
+
+Through the chaos of the market, nobody was paying attention to anything anyone was saying.
+
+"NONE of this was in the vision!" She shouted as she dove underneath a passing animal.
+
+The kid kept dumping *literally anything* he could find into her path, including several things that she hadn't even realized *could* be removed from walls because she'd never beeeen crazy enough to try.
+
+In her seven years as a hunter, never had *not being crazy* put her at a disadvantage.
+
+She was practically acrobatic as she dodged and weaved through carts and animals, with flips and kicks and sidesteps as she insulted the Force's mother for not thinking to warn her about any of this.
+
+Ten streets, nine shopping carts, eight animals, seven dodges, six candelabras, five furious shopkeepers, four big mud tires, three blaster shells, two hunting dogs, and some parts to a Mustang GT, even though she had no idea what a Mustang GT was.
+
+That was what it took to even tail this kid.
+
+So she closed her eyes, ignoring the animal dung clogging her nostrils, and tried to see into the Force what she possibly could've missed.
+
+In the time her eyes were closed, she realized an animal was sniffing her.
+
+She turned around, realizing she had just fallen for the oldest trick in the book: Run the other way while they aren't looking.
+
+"F*rce Ab*ve." She growled.
+
+She ran after him again as he steadily ran towards the podracing stands. She saw the shot she'd seen in her Force vision earlier. The boy standing in the middle of the grand market, in front of a hundred plus gambling merchants.
+
+*Force, we need to work on your context problem.* She thought.
+
+She ran past the gambling tents and the galaxy finally had mmercy on her because not a single thing happened to her in them. He ran, *laughing*, up the staircase and into the booths above.
+
+She, of course, followed.
+
+Hundreds of people were rushing to their seats in preperation for the big podrace, which meant vanishing into the crowd was practically *effortless* for the boy.
+
+Rey did her best to pursue, but she was losing. Badly. The numerous paintings insulted her with their smiling faces. Prime Minister Gunray stood next to various previous champtions of the Anak in 10. Toto standing smiling next to a far older Watto. Watto standing next to Qui-Gon Jinn in one image, and of course standing next to young Anakin Skywalker in the other.
+
+She was about to complain about Watto's stories, then remembered the sheer chaos that had unfolded last time and decided against it.
+
+Instead she just walked up the stairwell like everyone else and silently swore that she would capture this boy even if it killed them both.
+
+The boy ran through the booths of gamblers and sports-betters and high-ranking officials. The wealthiest men on Tatooine. She followed, dodging every curtain and door he threw in her face.
+
+It was a straight shot from one side of the stands to the other. She considered just laying down stasis bolts into the hallway until he dropped. And it would have worked, if she wasn't worried about hitting any one of the dozens of high-ranking officials currently filing through the same hallway.
+
+Was this cheeky little boy using the officials of Tatooine as human shields?
+
+She needed to rethink her strategy.
+
+She ran down the hallway and watched him vanish through a curtain.
+
+Then she realized what booth she was standing in, and she froze.
+
+"Hello, little one. What is your name?" A female voice asked.
+
+The booth of Prime Minister Stout Gunray, and next to him, Toto.
+
+"Rey. My name is Rey." She said quietly, both seeing and terrified at the situation she had just landed herself in.
+
+The most powerful man on Tatooine, next to her own Master.
+
+"Hello Rey," The woman said, her voice kind and soft, treating her like she wasn't property, but a person. It was a strange feeling. She wasn't sure she liked it. "My name is Representative Leia Organa, and I am on a diplomatic mission to Ald-"
+
+The woman paused, corrected herself.
+
+"-Tatooine. Every time. From the New Republic."
+
+There was no way. This was the woman elders had been telling her stories about since she was little.
+
+"You… are Leia Organa?" Rey's eyes widened.
+
+*Oh no. Oh no nononono.*
+
+"Yes, I am Leia Sk-" Leia said only to stop as she heard a voice in her head and realized it wasn't her own.
+
+*Not Skywalker.*
+
+It was Rey's.
+
+It took Leia a moment to gather her bearings. She straightened herself.
+
+Because Rey knew that being a Skywalker was a death sentence on Tatooine. Because Skywalker meant change. And change was bad for business. And on Tatooine, business was king.
+
+"Sorry, I forget that some people have certain sensitivities in the Outer Rim." Leia confessed. "Leia Organa."
+
+Rey's and Leia's eyes met for a full ten seconds.
+
+*My target is getting away.* Rey thought. She could sense the boy hiding in a trash chute somewhere down below.
+
+"Now, as I was saying to you before, Prime Minister-" Leia said, only to be cut off, not by a girl literally charging headfirst through the box, but by the Prime Minister himself.
+
+"Yes, yes, Representative Organa. I heard you the first time. I am considering your offer." Prime Minister Leto said, blue eye twitching in annoyance.
+
+"I'll be going now-" Rey said, attempting to leave, but Leia tugged at the back of her shirt just a bit.
+
+Rey felt like a dog being put on a leash so it couldn't chase a bird.
+
+"This conversation… " Leia gestured to the Prime Minister, "…needs time to foster. Changing hearts takes time."
+
+*Trash chute. Now he's fleeing. I need to move.*
+
+"Tell me about you." Leia said softly.
+
+*Oh you have got to be kidding me.*
