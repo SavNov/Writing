@@ -247,7 +247,7 @@ She was anticipating a but.
 
 "If you transliterate it into Ba'sic." She translated into the language she could understand.
 
-"Yes." He said, giving her a subtle glare. "That. If you do that, you get 'Korriban'."
+"Yes, Darth Academus." He said, giving her a subtle glare. "That. If you do that, you get 'Korriban'."
 
 She raised an eyebrow.
 
@@ -1001,3 +1001,21 @@ Rey felt like a dog being put on a leash so it couldn't chase a bird.
 "Tell me about you." Leia said softly.
 
 *Oh you have got to be kidding me.*
+NARRATOR
+Ahsoka Tano smiled, the older woman holding Rey's chin with more care than the hunter had felt in years.
+
+…
+
+Ahsoka's finger traced the photo of a younger Anakin Skywalker, then the saber she had left in the dirt of a frozen planet nearly six decades before. Her eyes drifted to another holotape, not of Sith, but the Imperial Archive record of Palpatine's defeat. Vader throwing the Sith Lord down the tube and saving his son.
+
+"I fought beside Anakin in the Clone Wars. I watched my Master go from a soldier to a general. I saw all the signs without knowing them for what they were. I did know what they were, though."
+
+She closed her eyes, seeing the memory fondly.
+
+"They were Anakin."
+
+The padawan learner turned Jedi turned teacher of Jedi met Rey's eyes.
+
+"I knew Anakin. I grew up just like you did. Targets, missions, battles, war. I was pulled out of slavery before I even knew what freedom meant. I was a soldier before I even understood what it meant to be a kid."
+
+
