@@ -37,6 +37,7 @@
 	- We basically ask the question of what if the protagonist of the story WAS the hunter trying to nab young Luke for a paycheck? And the boy does what Luke would normally do, and puts Rey through the antagonist bounty hunter treatment?
 	- Eventually, he has the gall to head INTO the luxury podracing view boxes, so she has to give pursuit, thoroughly annoyed at the fact that she's been chasing the same boy for thirty minutes now and he's getting away.
 	- As she ran through the booth, the kid vanished through a set of curtains.
+	- She realizes, with horror, which booth she's in.: Prime Minister Stout Gunray, and Toto. And then Representative Leia Organa stops her.
 	- *Why can't this day go my wa-* She thought, only to hear it.
 	- "Stop. Who are you, little girl?" A feminine voice asked.
 
