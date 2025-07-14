@@ -693,7 +693,25 @@ Poe nodded, slightly relieved.
 
 Leia nodded. "I will do everything in my power, Poe. I will not let the Hosnian System become the next Alderaan."
 
+Poe immediately had his BB-8 droid, the very one that had once carried those plans for Starkiller Base months ago, the notes about kyber crystals that he himself hadn't understood but had trusted people smarter and more knowledgeable than him would know what to do with, download every schematic and blueprint from the Imperial database that it could get its hands on, filling its memory banks to the brim with the exception a single kilobyte.
+
+Enough to hold a single order as he eyed the droid.
+
+"Get this information to Conospe at all cost."
+
+And so the droid had rolled away.
+
+"Oh BB-8..." Leia offered softly. "I can only hope your crew comes out of this better than mine did."
+
+Poe prayed to the Force, the Midichlorians, the Whills, whatever, that this plan would work.
+
+"Do not let become the next Rogue-1." He whispered to himself, watching the holoscreen, then shutting it off.
+
+Then Poe ran for his Force-ing life.
 …
+Just as he shut the holoscreen prompter down after BB-8's arrival was assured, the crew...completely unharmed, which he found strange. Then again, Hux was a moron who'd been completely blind to his own flight instructor spending months sending information to the New Republic, ruining the effectiveness of two Star Destroyer, a hundred TIE fighters, and so many more units.
+
+Probably just incompetence, really.
 
 Hux smiled at Poe.
 
@@ -807,3 +825,38 @@ And now, though he'd spent his entire life running away, PD-1182 stared death in
 
 And for the second time in thirty years, the most hated man in the galaxy…
 …died a hero.
+
+NARRATOR
+"What on Earth is going on?" Poe asked, watching as the universe slowed to a crawl around the windows. He realized the laser hadn't reached the deck yet. Instead, it had stopped.
+
+An engineer appeared behind him, having already accepted that she was going to die and now trying to understand what was going on.
+
+"The going theory is that when the ship's hyperdrive accelerated us to lightspeed, only for us to hit anothre beam already traveling at lightspeed, it caused a disruption in the space-time continuum and-" She said, but Poe put a finger up.
+
+"You just lost me. I'm a pilot, not a physicist." He admitted.
+
+She closed her eyes and tried again.
+
+"We were already traveling at the speed of light, then we hit the beam, and the two collided." She explained.
+
+"The speed of light is the speed limit of the universe." He remembered, as the giant explosion tore through the ship and they watched a past RSS Tano jump to hyperspace on a collision course.
+
+"And we surpassed it." She said.
+
+"So what happens when you go overspeed in the universe?" Poe asked, though he feared he already knew the answer when he was staring at the past version of the ship he'd just crashed.
+
+"It can't slow us down in space, so it's balancing the books by sending us backwards in time." She said.
+
+Poe nodded. "That I understand. Thank you."
+
+She nodded.
+
+"My mom told me a long time ago that the smartest people in the room prove they are the smartest people in the room by understanding complex things deeply enough that they can explain them simply, without being incorrect."
+
+"I suppose that makes you the smartest person in the room?" Poe asked, finally smiling again.
+
+The engineer shrugged.
+
+"No, because I don't understand it all either. I'm just someone so dense that I have to simplify and dumb things down far enough that even I can understand them." She smiled.
+
+""
