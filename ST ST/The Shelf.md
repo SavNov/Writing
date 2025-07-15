@@ -858,5 +858,5 @@ She nodded.
 The engineer shrugged.
 
 "No, because I don't understand it all either. I'm just someone so dense that I have to simplify and dumb things down far enough that even I can understand them." She smiled.
-
-""
+NARRATOR
+"Well played, kid," She groaned, hating how badly she wanted to smile, "well played."

@@ -43,7 +43,7 @@ Because right now, letting him be executed by the Republic of Tatooine seemed pr
 
 She stepped forward into the utter madness and had only five words to say.
 
-"Well played, kid," She groaned, hating how badly she wanted to smile, "well played."
+"Well played, kid," She groaned, "well played."
 
 Then she did the only thing you really could do when you were wiping wet sausage grease off of your uniform.
 
@@ -59,17 +59,43 @@ The kid kept dumping *literally anything* he could find into her path, including
 
 In her seven years as a hunter, never had *not being crazy* put her at a disadvantage.
 
-She was practically acrobatic as she dodged and weaved through carts and animals, with flips and kicks and sidesteps as she insulted the Force's mother for not thinking to warn her about any of this.
+*Okay,* She thought, *my turn.*
 
-Ten streets, nine shopping carts, eight animals, seven dodges, six candelabras, five furious shopkeepers, four big mud tires, three blaster shells, two hunting dogs, and some parts to a Mustang GT, even though she had no idea what a Mustang GT was.
+She was practically acrobatic as she dodged and weaved through carts and animals, with flips and kicks and sidesteps because she was the best tracker and hunter on Tatooine and she was *not* going to lose her edge to a boy who wasn't even armed.
+
+*Not when I have a stasis rifle in my bag and seven years of experience in hitting a moving target with it.*
+
+Ten streets, nine shopping carts, eight animals, seven dodges, six candelabras, five furious shopkeepers, four big mud tires, three blaster shells, two hunting dogs, and some parts to a Mustang GT.
 
 That was what it took to even tail this kid.
 
 So she closed her eyes, ignoring the animal dung clogging her nostrils, and tried to see into the Force what she possibly could've missed.
 
-In the time her eyes were closed, she realized an animal was sniffing her.
+She saw him enter a set of apartments in what she'd elected to call the Royal Quarter. The room would be five meters long. He took three seconds to run across the space. Speed was distance over momentum. Given the average kid didn't tend to slow down when they were being pursued, and he was already running as fast as he could, it was a good chance.
 
-She turned around, realizing she had just fallen for the oldest trick in the book: Run the other way while they aren't looking.
+She calmly slipped the blaster rifle out of her bag, aimed it like she'd been instructed, and waited.
+
+*Okay crazy, time for you to meet psycho.*
+
+*Breathe in, breathe out. Inch up on the up breath, inch down on the down breath.*
+
+And she shot the blaster bolt straight through the sandstone wall at the quarter-inch-wide gap where she knew it would go in one side and out the other.
+
+It wouldn't kill him. She needed him alive. Toto needed him alive. But it would scare the daylights out of him and hurt like a sandworm bite at the same time.
+
+*3.*
+
+*2.*
+
+*1.*
+
+She pulled the trigger. The bolt raced out the barrel and shredded straight through the sandstone wall like it was made of butter.
+
+Convinced that her target was down for the count, she placed the blaster back in her bag and shouldered it.
+
+Then the boy ran past the next window and out the other side nursing nothing but a slightly burnt t-shirt.
+
+*I… I MISSED?*
 
 "F*rce Ab*ve." She growled.
 
@@ -77,17 +103,23 @@ She ran after him again as he steadily ran towards the podracing stands. She saw
 
 *Force, we need to work on your context problem.* She thought.
 
-She ran past the gambling tents and the galaxy finally had mmercy on her because not a single thing happened to her in them. He ran, *laughing*, up the staircase and into the booths above.
+She ran past the gambling tents with fury and self-disappointment battling for dominance inside of her. She was the greatest hunter and tracker on Tatooine. And she had missed. Which was pretty bad when her entire livelihood depended on her capturing the target the *first* time.
 
-She, of course, followed.
+So she ran like a bat out of Hell as she repeated the mantra again.
+
+"It's either him, or me."
 
 Hundreds of people were rushing to their seats in preperation for the big podrace, which meant vanishing into the crowd was practically *effortless* for the boy.
 
-Rey did her best to pursue, but she was losing. Badly. The numerous paintings insulted her with their smiling faces. Prime Minister Gunray stood next to various previous champtions of the Anak in 10. Toto standing smiling next to a far older Watto. Watto standing next to Qui-Gon Jinn in one image, and of course standing next to young Anakin Skywalker in the other.
+Rey did her best to pursue, but she was losing. Badly. Her target had vanished into the crowd on the biggest race of the year, and rich people did not like being shoved.
 
-She was about to complain about Watto's stories, then remembered the sheer chaos that had unfolded last time and decided against it.
+The boy appeared at the top of the stairwell, looking like he had finally found safety. There were dozens of people in the way on the staircase.
 
-Instead she just walked up the stairwell like everyone else and silently swore that she would capture this boy even if it killed them both.
+*Fine. I'll have to improvise.* She thought to herself.
+
+So she took ten steps forward, eyeing the side of the staircase…
+
+…and simply ran up the Force-ing wall, doing a flip after she hit the top and landing on her feet.
 
 The boy ran through the booths of gamblers and sports-betters and high-ranking officials. The wealthiest men on Tatooine. She followed, dodging every curtain and door he threw in her face.
 
@@ -95,27 +127,34 @@ It was a straight shot from one side of the stands to the other. She considered 
 
 Was this cheeky little boy using the officials of Tatooine as human shields?
 
+*Is this kid psycho too?*
+
 She needed to rethink her strategy.
-
-She ran down the hallway and watched him vanish through a curtain.
-
-Then she realized what booth she was standing in, and she froze.
-
-"Hello, little one. What is your name?" A female voice asked.
-
+She ran down the hallway and watched him vanish through a curtain, and only then did she realize what booth she was standing in.
+She froze like her life depended on it, which for all she knew, it did.
 The booth of Prime Minister Stout Gunray, and next to him, Toto.
 
-"Rey. My name is Rey." She said quietly, both seeing and terrified at the situation she had just landed herself in.
+If Toto understood why she was in this room at all, if he worked it out, she was dead.
+
+"What is your name, little one?" A female voice asked.
+
+Stern, authorative. She was an intruder and the woman had evidently seen the boy running for his life before she'd seen her.
+
+"Rey. My name is Rey." She said quietly, taking them both in.
 
 The most powerful man on Tatooine, next to her own Master.
 
-"Hello Rey," The woman said, her voice kind and soft, treating her like she wasn't property, but a person. It was a strange feeling. She wasn't sure she liked it. "My name is Representative Leia Organa, and I am on a diplomatic mission to Ald-"
+A cold bead of sweat ran down her back as her blood didn't know whether to freeze or boil.
+
+"Hello Rey," The woman said, her voice turning kind and soft, treating her like she wasn't property, but a person. It was a strange feeling. She wasn't sure she liked it. "My name is Representative Leia Organa, and I am on a diplomatic mission to Ald-"
 
 The woman paused, corrected herself.
 
 "-Tatooine. Every time. From the New Republic."
 
-There was no way. This was the woman elders had been telling her stories about since she was little.
+There was no way. This was the woman elders had been telling her stories about since she was little. The Rebellion General, the one that had stood her ground against Vader, the one that had practically built the New Republic.
+
+And Rey was forcing a young boy who looked very much like Luke Skywalker to run for his life.
 
 "You… are Leia Organa?" Rey's eyes widened.
 
@@ -126,6 +165,8 @@ There was no way. This was the woman elders had been telling her stories about s
 *Not Skywalker.*
 
 It was Rey's.
+
+Bad before, worse now. Rey had just used the Force on a planet where mere association with it meant death. In front of the very Prime Minister who had passed the law thirty years ago.
 
 It took Leia a moment to gather her bearings. She straightened herself.
 
@@ -139,7 +180,7 @@ Rey's and Leia's eyes met for a full ten seconds.
 
 "Now, as I was saying to you before, Prime Minister-" Leia said, only to be cut off, not by a girl literally charging headfirst through the box, but by the Prime Minister himself.
 
-"Yes, yes, Representative Organa. I heard you the first time. I am considering your offer." Prime Minister Leto said, blue eye twitching in annoyance.
+"Yes, yes, Representative Organa. I heard you the first time. I am considering your offer." Prime Minister Leto said, blue eye twitching.
 
 "I'll be going now-" Rey said, attempting to leave, but Leia tugged at the back of her shirt just a bit.
 
@@ -151,68 +192,6 @@ Rey felt like a dog being put on a leash so it couldn't chase a bird.
 
 "Tell me about you." Leia said softly.
 
-*Oh you have got to be kidding me.*
+Her eyes flickered, first to Toto, then to Gunray, then to Leia again. Both men would kill her if they knew the truth. Leia would not accept a lie. Two dogs and one bird.
 
-"I'm an orphan. I've been a slave all my life." Rey said quickly, hoping to end the conversation as quickly as she had with that merchant.
-
-Leia physically staggered at the sheer emotional whiplash of those two sentence, but for some reason *this* Alderaanian wouldn't stay down.
-
-Rey began to doubt whether the little girl she'd put a stasis bolt in early this morning had actually stayed in the hole, whether Toto had even gotten paid. A Toto that hadn't been paid was *not* a good person to be in the booth of on the biggest race of the year.
-
-"I am… so terribly sorry." Leia said, leaning down slightly to meet Rey at her level. "No child should have to endure such a fate."
-
-Leia met her eyes. Rey felt seen, like this woman knew exactly who she was, what she'd done, and saw past all of it.
-
-It irritated her. She was a hunter. The girl from Alderaan had hardly been the first child she captured. She had kidnapped children, grown men, taken merchants hostage, and stood by, motionless, as Force-sensitive children died in executions by blaster bolt for daring to commit the same crime she had. The only difference between them and her was she was better at running.
-
-The answer on Tatooine to ethical questions could vary widely, but nobody was ever mad enough to make one out of: *I forgive you for all you've done.*
-
-"Especially not children like you."
-
-A man entered the booth behind her, and immediately everyone understood that he was different. He was dressed in a three-piece brown suit, with short black hair in a military cut. He sat down at the table, resolute and determined.
-
-The Prime Minister nearly had him escorted out, but then the man said the golden words of Tatooine: "Prime Minister Gunray, I am General Hux, and I come to you not as a servant but as a businessman. I am here to offer you a venture that may make you the richest men in the galaxy."
-
-Rey knew that anyone who introduced themselves like that could not be good. Leia seemed to know it too.
-
-The Prime Minister met Hux's eyes. "Alright, General, you have intrigued me. Tell me more."
-
-"A venture called the First Order. I will not bore you with ideology, Representative Organa has been..." Hux said, catching her gaze for only a second as he gestured to the symbol of the New Republic on her uniform like that explained everything, "punishment enough. No, I offer you something different. The security and prosperity of the Empire, with none of the regulation. A place where individuals thrive, not institutions. A pipe dream, I'll admit, but so is the New Republic."
-
-Rey recognized Hux instantly. He was dressed like a businessman, but talked like a politician. She knew, in the same way that she had known the boy would run to Tatooine's grand market, that General Hux was not a businessman with a venture. He was simply selling his real vision just the way Tatooine's leadership would want to hear. It was a skill only mastered by high-functioning psychopaths and narcissists.
-
-Leia and Rey knew at the same moment that Hux was far deadlier with a microphone than Leia was with a blaster.
-
-And now the hunter was trapped in the room with him.
-
-"I have been fighting for my pipe dream for thirty years, General," Leia said calmly, but with steel, "yet I only heard of you ten minutes ago."
-
-"And yet, in ten minutes, I seem to have come farther with the Prime Minister of Tatooine than you have in thirty years. Perhaps..." Hux said, tracing the map on the table, "...the galaxy has grown tired of you and sought out a replacement."
-
-Leia met Rey's eyes again, and she saw it. Leia cared vastly more about the little girl in front of her than she cared about one diplomatic mission.
-
-"How much for the girl?" Leia dared, getting to the Prime Minister in a very different way now, greed and money.
-
-Toto smiled.
-
-"I don't know, Representative Leia. What does little Rey believe she's worth?"
-
-It was a horrible question. Her ego as best hunter and tracker on Tatooine demanded priceless, but priceless couldn't be bought. And something else, deep within her, insisted that the way out was being worthless, but she couldn't stand that either.
-
-Instead, Rey looked out of the open window of the podracing booth, out at the dozens of podracers below on the field. Then, a number came to mind.
-
-"1800 Republic credits." Rey declared.
-
-1800. A number every soul on Tatooine had written on their heart, alongised 3500 and 15000. The third place winnings for a podrace.
-
-"That... is a significant amount of money for one girl." Leia admitted.
-
-Her day clearly had not been going well so far, and the price tag of this girl was making things even worse.
-
-"I am not... the one who made that run." Leia confessed. Rey nodded.
-
-Toto just laughed.
-
-"You don't need to be Anakin Skywalker to win a podrace, Representative. Though it certainly helps..."
-
-Slavers did not care about truth. They sprouted whatever story suited their ego, their bank
+All three were going to eat her alive.
