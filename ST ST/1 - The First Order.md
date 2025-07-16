@@ -5,37 +5,19 @@
 - She has finished scouting out the location of her most recent target, and now enters the abandoned building, telling Toto over comms to send the BB-8 droid to her designated drop-off point with the intention of confirming buyer satisfaction and collecting payment.
 - She knocks the little girl out with a stasis rifle, and places her in the back of a speeder. The name doesn't matter. It was either Rey or her. She brings the girl to the drop-off point, where the girl waits in a hole and Rey speeds off just as a group of Romeros arrive.
 - Rey has barely had time to gather her bearings before she receives her next task:
-	- Before Rey even saw the holoscreen and its contents, the fact that Toto was talking to her told her this was a special assignment.
-	- "Prepare yourself, hunter. A special assignment has arrived. A boy."
-	- "A special assignment?" The picture of a boy who looks unnervingly similar to a young Luke Skywalker appears in the projected image of the BB-8 droid.
-	- "A Force-sensitive child. The Republic of Tatooine has agreed to cancel the execution in light of our buyer."
-	- Rey pauses for just a second.
-	- "Special target. No kidding."
-	- Toto said nothing about the target's suspected whereabouts or any useful information. What wasn't on the holoscreen bulletin already was for the hunter slave to figure out instead of people like Toto.
-	- "What was so special about the girl?"
-	- "The Romeros believe she has a connection to the Royal family of Alderaan."
-	- "Does she?" Rey asked.
-	- "I do not know and I do not care. Forty-five thousand Republic credits is forty-five thousand Republic credits. If the banker is willing to accept them, it isn't my problem."
-	- A beat passed.
-	- "Do you have ethical questions, Hunter?"
-	- "No, of course not."
-	- Rey had been a hunter for seven years. Ethical questions were an occupational hazard she did well to avoid.
-	- "I'm just concerned. If this girl really did survive her home planet being blown to pieces, a stasis bolt from thirty feet may not be enough to keep her down for the Romeros."
-	- Toto considered ethical questions to be beneath him.
-	- But his target running away before he could get paid was right at his level.
-	- "I'll look into it."
-	- And so as Rey sensed in that extension of herself she suspected of being the Force that her target was aiming to be at the evening podraces, she looked at the morning suns and sighed. All this boy had done to deserve execution in the eyes of the Republic of Tatooine was be a Force-sensitive child. Forced them to remember the legacy of the Skywalkers.
-	- BB-8 rolled back the way it had come, back to Toto. She pocketed the statis rifle and used a flick of her finger into the Force to put the safety back on. She had committed the same crime this boy had. This wasn't right. This wasn't justice. So she repeated the mantra to herself that had kept her sane since the age of 7.
-	- "It's either him, or me."
-	- And she rode her speeder back towards Tatooine's biggest city to intercept her target at the pod races.
-	- Because she'd learned a long, long time ago that freedom was not on Tatooine. It was in a galaxy far, far away.
-	- And this time, that was no fairy tale with a knight and a princess and a wizard.
-	- It was a story as real as the stasis rifle in her bag.
+	- Toto talking to her via holocron informs her that this is a special assignment.
+	- A Force-sensitive child looking not unlike Luke Skywalker is scheduled for execution, but the Republic of Tatooine has agreed to cancel the execution in exchange for 45 thousand credits and their buyer getting the boy off the street.
+	- Rey is nagged by the girl's face and finds out that the Romeros believe she is connected to the old Alderaanian royal line. When she asks for confirmation, Toto does not know or care, and we find out Rey is concerned that a stasis bolt may not be enough to keep the girl down, but that isn't the only reason.
+	- Toto promises to look into it to ensure his money does not run away before he can get paid.
+	- Rey relies on a Force vision and sees her target standing in the middle of Tatooine's Grand Market late in the evening. She knows this is behind the podracing booths.
 - Rey goes to the podraces, and things begin to go wrong:
 	- She misreads a Force-powered cue, and searches the wrong alley, giving the boy time to flee.
 	- The boy keeps knocking things over and using the Force to put the world in her way as she pursues.
-	- We basically ask the question of what if the protagonist of the story WAS the hunter trying to nab young Luke for a paycheck? And the boy does what Luke would normally do, and puts Rey through the antagonist bounty hunter treatment?
+	- Frustrated at being beaten, but also scared of losing her target, she resorts to simply use her blaster rifle to deliver a purely flesh-level non-lethal wound that will cause a great deal of pain. The kid flees into apartments.
+	- *Fine. I'll just have to shoot you through the wall then.*
+	- After timing it correctly, she fires it, only to see him run out the other side with nothing but a burnt shirt. She is so stunned that she missed that she puts a hole into a window just to confirm her blaster works. Now she's beginning to get seriously nervous. Her livelihood depends on being the hunter that doesn't miss.
 	- Eventually, he has the gall to head INTO the luxury podracing view boxes, so she has to give pursuit, thoroughly annoyed at the fact that she's been chasing the same boy for thirty minutes now and he's getting away.
+	- Upon seeing him atop a huge staircase filled with people, she resorts to simply running straight up the wall to catch him.
 	- As she ran through the booth, the kid vanished through a set of curtains.
 	- She realizes, with horror, which booth she's in.: Prime Minister Stout Gunray, and Toto. And then Representative Leia Organa stops her.
 - 
