@@ -919,3 +919,58 @@ She jumped and bounded, him again avoiding being reduced to a bloodstain by inch
 "Alright," she smirked, intrigued as to what this random man could do with it when it was locked and only answered to her, "show me the droid."
 ...
 It was only after she Force-dragged him off the railing and sent him hurtling fifteen stories straight down, only to be saved by catching a rope he'd noticed and swinging onto a nearly catwalk, that maybe, perhaps, just this once, he might need an actual plan.
+NARRATOR
+Kylo began to duel her. They moved together in a death-defying dance, but the Sith Lord from Moraband always seemed just one step ahead.
+Talon was losing.
+"I have watched the Sith Archives of every opponent Vader and Maul ever fought. I memorized them. There is no move you could use that could possibly surprise me." That deep, emotionless voice echoed. They weren't people, just a task to be dealt with.
+Ben had never been any good with a lightsaber. He was a pilot, not a fighter. That was how he'd always used the Force. To pull off insane, near-fatal stunts in starfighters and X-Wings and the Falcon.
+Never a duel.
+She tried to deliver a powerful downward strike, the same one that had nearly killed him the day they'd first met.
+Kylo parried the blow, and turned it straight into a Force-choke with zero hesitation. Her body dangled helplessly as she fought for air.
+"Sith and Attachments." Kylo said, like she was little more than a puppy that had peed on the carpet. "It must run in your bloodline, apprentice of Maul. Always being split into two."
+Talon looked terrified, but also guilty. She met his eyes, and mouthed the words: *Help me.*
+Was this supposed to be the part where Ben Solo, grandson of Darth Vader, sacrificed his life to throw Kylo down the tube? He hoped not.
+
+It seemed deeply ironic that his last name was Solo. After all, that was the way it had always been. Ben. Solo.
+And then he heard a voice, not around him, but within him.
+*Jedi. Do you hear me?*
+His eyebrows shot up. Who was in his head?
+*Yes, I hear you.* He thought, not knowing whether or not he was finally going insane like he'd joked about so many times with Talon. *I am not a Jedi, though.*
+He could sense the voice laughing playfully even if he couldn't hear it.
+*I am Luke Skywalker, and you are going to duel Kylo.*
+It was Ben's time to sputter.
+*I've never even picked up a lightsaber before! How am I supposed to fight this guy? I don't know what to do!*
+Luke's voice was steady yet stern.
+*Pick up the lightsaber.*
+
+Ben reached out, but the voice stopped him.
+*No, with the Force.*
+*I don't know how to use the Force! All I've ever done is fly!*
+Luke's tone softened.
+*A thousand generations of Jedi stand behind you, Ben Solo. You are not alone in this. Let them teach you, open your mind, listen to them. Let them show you what to do.*
+Ben's hands shook violently as he opened his hand and whispered into the wind like it might be his last words. "Please, Force, help."
+Talon was asleep now. He didn't know when she would wake up, or if she would wake up, and that thought scared him more than anything in the world.
+Ben focused, not on talking his way out, but by listening.
+To his utter shock, Talon's red blade shifted just a fraction of an inch on the ground. Ren was coming after him now.
+"You think you stand a chance, Skywalker? You have never even raised a blade. You have nothing."
+Ben panicked, lost focused, and the lightsaber stopped moving.
+*Again.* Luke insisted.
+Ben closed his eyes, the Sith now so close that he could feel the heat of his opponent's lightsaber on his face.
+*I am one with the Force, and the Force is with me. I am one with the Force, and the Force is with me.* He thought, chanting it like a desperate manta in his mind.
+He was going to die here, Kylo Ren was going to kill him. But that wasn't what made his blood run cold.
+Kylo was going to kill Talon.
+The lightsaber moved, just an inch or so, such little distance that he thought it must have been the wind. He kept pushing, kept chanting the words, desperat and scared and guilty and embarrassed. Luke was probably laughing at him. Anakin was probably laughing, too.
+*I am one with the Force, and the Force is with me. I am one with the Force, and the Force is with me. I am one with the Force, and the Force is with me.*
+Then the glowing red lightsaber, the Sith lightsaber, of Darth Talon flew into his palm like it had been shot out of a blaster rifle.
+He nearly wept for joy. He gripped the hilt, trying to keep his hand even remotely steady. He had no idea what he was doing.
+*But they do.* He thought. *Show me. Show me what to do.*
+Then for just a fraction of a second, he felt the hilt, and thought he was holding something else. Softer, yet with a steel core. He felt it pulse underneath his fingers, felt the hum of the engine and fuel lines poured hot liquid into that tiny void where piston met engine block.
+*Wait a sec,* Ben realized, *I know **exactly** what I'm doing.*
+Kylo aimed to strike through his chest. He shifted on the balls of his feet and the ship followed him, pivoting thirty degrees in the air as he blocked.
+And so on it went. Parry, block, jab, spin, dodge. He was just dogfighting, this was it. It was hard, really hard, but he knew how to move his body and fingers to get the plane where it needed to be to pull off the maneuver.
+*For a pilot who has never held a lightsaber a day in his life, Ben,* Luke smirked, *you make a tremendously fine duelist.*
+...
+"What did Kylo mean when he said you were split into two?"
+"He...he meant..." Talon said, then shrugged him off. "It's nothing. Nevermind. You would never understand."
+...
+"I've been living in my dad's shadow my entire life."
