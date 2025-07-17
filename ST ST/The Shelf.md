@@ -920,6 +920,9 @@ She jumped and bounded, him again avoiding being reduced to a bloodstain by inch
 ...
 It was only after she Force-dragged him off the railing and sent him hurtling fifteen stories straight down, only to be saved by catching a rope he'd noticed and swinging onto a nearly catwalk, that maybe, perhaps, just this once, he might need an actual plan.
 NARRATOR
+Sith were supposed to be anger, revenge, pain and passion.
+
+Kylo Ren was none of those things.
 Kylo began to duel her. They moved together in a death-defying dance, but the Sith Lord from Moraband always seemed just one step ahead.
 Talon was losing.
 "I have watched the Sith Archives of every opponent Vader and Maul ever fought. I memorized them. There is no move you could use that could possibly surprise me." That deep, emotionless voice echoed. They weren't people, just a task to be dealt with.
@@ -971,6 +974,16 @@ And so on it went. Parry, block, jab, spin, dodge. He was just dogfighting, this
 *For a pilot who has never held a lightsaber a day in his life, Ben,* Luke smirked, *you make a tremendously fine duelist.*
 ...
 "What did Kylo mean when he said you were split into two?"
-"He...he meant..." Talon said, then shrugged him off. "It's nothing. Nevermind. You would never understand."
+"He… he meant… " Talon said, then shrugged him off. "It's nothing. Nevermind. You would never understand."
 ...
-"I've been living in my dad's shadow my entire life."
+"I've been living in my dad's shadow my entire life." Talon confessed. "I was never Darth Talon. I was always the apprentice of Maul."
+She looked out one of the windows of the Falcon, eyeing the planet of Mustafar below.
+"Maul told me never to leave Mustafar. After what happened here sixty years ago, it's become… a Holy ground of sorts to the Sith. The place where Anakin Skywalker died and Darth Vader rose in his stead."
+
+Her fingers traced the edge of the transparisteel absentmindedly.
+"Maul, split into two," Ben realized, standing next to her but making no move to get closer, "and now you… are torn between Mustafar… and the Falcon."
+She nodded like she was confessing to a secret sin.
+"A thousand years of Sith heritage, or a couple of days on this ship."
+Ben sighed, realizing they had the same burden.
+"A thousand years of Jedi, or half my life with the Falcon. I know what you mean. I… think I understand."
+NARRATOR

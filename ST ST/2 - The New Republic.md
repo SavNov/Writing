@@ -1,0 +1,40 @@
+# The New Republic
+## Act One
+- Rey is finally beginning to feel like she's found a home. That scares her.:
+	- The First Order has risen, and the New Republic has been caught with its pants down.:
+		- The Rebellion won, Vader is dead, Leia is Supreme Chancellor of the New Republic, Han Solo is teaching young rebels and finally ordinary citizens how to fly ships.
+		- In First Order systems, crime has never been lower, the Sith Cults are gone, the crime syndicates are being forced to retreat further into the Outer Rim.
+	- Go a parsec beyond Conospe, and the New Republic is rotting from the inside out.:
+		- The New Republic has legally neutered itself out of fear of centralized power corrupting it again.
+		- Planetary and System governments lack the power to enforce their own laws. The military is being used on some planets in place of police. Some systems don't even know the Empire has fallen, and are still under mandatory curfews to prevent bombing.
+		- The New Republic tolerates General Mary Amidala's declaration of President of Naboo For Life in the name of preserving democracy there for as long as possible and prevent Naboo from devolving into something worse.
+	- Blue collar Hosnian System serves as the backbone of the New Republic, holding 40% of its civil and military population, and sections of the planets are literally dying of starvation.
+- Rey is a hunter and tracker, so they rationally assume she can do recon on Naboo without being captured.:
+	- Rey walked into the New Republic Senate next to Leia Organa as she was introduced as another Force-sensitive child.:
+		- Gasps ensue, her kind are rare, and it makes her feel extremely weird because she's used to ignored and not admired. The problem is, her kind aren't rare. She knows that. There ought to be dozens of Force-sensitive children minimum within the massive space the New Republic claims to cover.
+		- Many of these Senators have not so much as set foot off Conospe since they stopped campaigning. She remembers BB-8, the holocron in his databanks with the message about Palpatine finally finding a solution to the Tragedy of Darth Plagueis the Wise. She brings it up to Leia.
+		- Leia reprimands her in front of a group of Senators, talks in private, and we realize that the Senate is living in fear of the Empire and of Palpatine. This New Republic cannot survive a return from Sidious, not when they've only just managed to forget the long and brutal war they fought just to have this.
+	- News of an attack reaches the Senate, and Rey gets answers.:
+		- So the Senate building on Naboo has been bombed. Would be bad. If there was anyone in it.
+		- General Amidala is demanding that the perpetrators turn themselves in and face justice. "The day we stop fighting for our democracy is the day we lose it."
+		- Rey immediately gets the horrible feeling that she knows exactly who did it, but if she said who, the New Republic would be engulfed in a Civil War. So she keeps her mouth shut.
+	- Rey is delegated as leader of a recon mission to figure out the people behind the bombing as a way of appeasing General Amidala AND by Leia so the woman can try and get the Senate to see reason.
+- Rey goes to Naboo hoping to be wrong about her hunch as she searches for evidence, knowing that she may be about to bring the Republic to Civil War.
+- Poe is a flight instructor for the First Order, with the easiest job on Earth:
+	- Poe is not a man of ideology, just one of survival, and right now he is getting three meals a day and bed.
+	- The consensus among mid-ranks like him is that Hux is not the smartest tool in the shed, offering what most see as easy work in exchange for a lot of work from Hux, but none of them dare tell Hux that.
+	- Poe is teaching young pilots on an Outer Rim world how to fly TIE fighters. 
+	- He knows he's not a hero like his dad, but still he has access to many of the schematics of First Order ships in order to teach these pilots how to fly them.
+- Poe witnesses a ruthless execution and is disturbed by it, but also sees opportunity.:
+	- After a group of raiders threaten the First Order base, Kylo shows up… and calmly rips the location of their base out of their minds with the Force.:
+		- A group of raiders show up, set a building on fire, and attempt to flee, only to suddenly drop to the ground groaning and rubbing their heads.
+		- "Where is your base?" Kylo asks, like he finds this to be a cumbersome task.
+		- "We'll never tell you!"
+		- Kylo doubles on the pressure, making one of them scream in pain as the other four are unable to get up.
+		- "Your friend is about to be telepathically lobotomized if he decides to be a hero and not confess."
+		- Guy refuses to tell. Remaining raiders watches Kylo keep going until the guy goes insane and Kylo leaves him screaming on the floor.
+		- Next guy, same deal. Third guy looks at the first two.
+		- "You are nobody and nothing. Another man dying beneath the boot of an empire that does not care about you and a world that will not remember you ever lived." Kylo says.
+		- "And what if I'm willing to die anyway?"
+		- "You are a teenage raider without a cause besides chaos who flees at the first sign of trouble. You are a coward. Tell me where your base is, or I will prove it to you."
+		- Third raider confesses, fourth raider shoots Kylo in vengeance, Kylo freezes the blaster bolt in air and wields it like a lightsaber without a hilt as he murders both men in cold blood.
