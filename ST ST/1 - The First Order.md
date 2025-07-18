@@ -20,4 +20,13 @@
 	- Upon seeing him atop a huge staircase filled with people, she resorts to simply running straight up the wall to catch him.
 	- As she ran through the booth, the kid vanished through a set of curtains.
 	- She realizes, with horror, which booth she's in.: Prime Minister Stout Gunray, and Toto. And then Representative Leia Organa stops her.
+- Rey and Leia talk, Rey realizes Leia is also Force-sensitive, Leia realize Rey is more than just a hunter, so Leia makes it her mission to free Rey.
+- Leia succeeds, channeling both Luke and Han, and Rey is a free girl now, but doesn't understand why Rey is running away from her or why she's running alongside the little boy she was prevously hunting now.
+- Rey has tracked the Force-sensitive boy to the Anakin Skywalker Jedi Temple Memorial, enters a stand-off with the Force with him, then is stopped by another courier BB-8 droid who delivers a terrifying message, so Rey is forced to flee a very angry Leia.
+- Leia catches Rey, who is convinced that she is going to kill her, only for Leia to sit down next to the Force-sensitive kid and 
 - 
+- Kylo, no mask yet, stoops to kneel at a deformed Snoke's feet.:
+	- "You must be careful, child of Ren. We are in the late stages of my master's plan now. You must ensure that General Hux suspects nothing."
+	- "Hux is too focused on the project of his youth to suspect foul play."
+	- "Then you know your task well."
+	- "Master Snoke, I am ready."
