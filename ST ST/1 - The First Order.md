@@ -38,6 +38,7 @@
 		- "One would think that having a way to see into the future would make you very wealthy, very powerful, very wise, but that isn't how it works. The Force takes as much as it gives, especially when you apply it the same way we do."
 		- Rey looks around for who the target is speaking to, then realizes it's her.
 		- "Yes. I can sense you. You are not very subtle, especially to someone like me."
+	- After Vergere	
 	- After her first conversation with Vergere, Rey is thoroughly freaked out. Scared. And not just because of BB-8.:
 		- Rey watches the holotape off of BB-8's memory banks again, and realizes that it isn't fake. Palpatine intends to return as a clone of his old body. And if Vergere is anything to go by, he is already *very* close to returning.
 - Leia is obligated as Supreme Chancellor of the New Republic to turn in Rey for the attempted murder of a Jedi Master, so Rey goes to Conospe for trial.:
