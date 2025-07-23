@@ -1,8 +1,8 @@
 # The First Order
 ## Act 1
-### Opening Hook
 - Rey is a slave girl born and raised on Tatooine by Toto, nephew of Watto.
 - She has finished scouting out the location of her most recent target, and now enters the abandoned building, telling Toto over comms to send the BB-8 droid to her designated drop-off point with the intention of confirming buyer satisfaction and collecting payment.
+- nephew
 - She knocks the little girl out with a stasis rifle, and places her in the back of a speeder. The name doesn't matter. It was either Rey or her. She brings the girl to the drop-off point, where the girl waits in a hole and Rey speeds off just as a group of Romeros arrive.
 - Rey has barely had time to gather her bearings before she receives her next task:
 	- Toto talking to her via holocron informs her that this is a special assignment.
@@ -21,10 +21,10 @@
 	- As she ran through the booth, the kid vanished through a set of curtains.
 	- She realizes, with horror, which booth she's in.: Prime Minister Stout Gunray, and Toto. And then Representative Leia Organa stops her.
 - Rey and Leia talk, Rey realizes Leia is also Force-sensitive, Leia realize Rey is more than just a hunter, so Leia makes it her mission to free Rey.
-- Leia succeeds, channeling both Luke and Han, and Rey is a free girl now, but doesn't understand why Rey is running away from her or why she's running alongside the little boy she was prevously hunting now.
-- Rey has tracked the Force-sensitive boy to the Anakin Skywalker Jedi Temple Memorial, enters a stand-off with the Force with him, then is stopped by another courier BB-8 droid who delivers a terrifying message, so Rey is forced to flee a very angry Leia.
+- Leia succeeds, channeling both Luke and Han, and Rey is a free girl now, but doesn't understand why Rey is running away from her or why she's running alongside the little boy she was previously hunting now.
+- Rey has tracked the Force-sensitive boy to the Anakin Skywalker Jedi Temple Memorial, enters a stand-off with the Force with him, then is stopped by another courier BB-8 droid who delivers a terrifying message, so Rey is forced to flee an angry Leia.
 - Leia catches Rey, who is convinced that she is going to kill her, only for Leia to sit down next to the Force-sensitive kid and have a heart-to-heart with her.:
-	- Rey and Luke flee through the streets of Tatooine's grand market, Luke insisting that since Leia is a Force-user, that she can track them. Rey reminds him that she is too, and "Leia has only ever been here on diplomatic missions, and never for very long. I've been here my entire life, and know every single route through this city better than the back of my hand.".
+	- Rey and Luke flee through the streets of Tatooine's grand market, Luke insisting that since Leia is a Force-user, that she can track them. Rey reminds him that she is too, and "Leia has only ever been here on diplomatic missions, and never for long. I've been here my entire life, and know every single route through this city better than the back of my hand.".
 	- Tatooinian Republic soldiers corner Luke and Rey with Leia's guidance, surrounding them on all sides. For all these soldiers care, they are capturing two runaway slaves.
 	- Rey and Luke find themselves surrounded by soldiers, and both pull a hail mary.:
 		- Luke uses the Force to scatter the stasis bolts as Leia looms in the distance trying to catch up, and Rey takes out her own rifle and begins gunning down the soldiers with stasis bolts of her own.
@@ -32,23 +32,32 @@
 	- Rey discovers she is free, but the boy isn't.:
 		- "Toto will be furious."
 		- "That doesn't sound like our problem, does it?"
+- Rey accepts Leia's offer to become Leia's Jedi Padawan and learn her new Master's code, the Jedi Code, as she hunts down a new set of targets for Leia.:
+	- Leia, aboard her diplomatic cruiser, informs Rey and Luke that the New Republic is embers of what it once was. Despite her best efforts, Mon Moth steadily ground the New Republic into legal irrelevance out of fear of it becoming the Empire. The Jedi Order is scattered to the winds and out-numbered trying to fight thousands of Sith Cults at once. Leia refuses to give up, though. When the Empire stood, even though the Rebellion was small, they fought anyway. Now, even though the New Republic is embers of what it once was, Leia intends to rebuild it.
+	- Rey says they will simply have to fight like Anakin Skywalker did with the younglings. Mainly to please hew new Master. Luke echoes this sentiment, eager and a rather chaotic little gremlin.
+	- Leia shudders, but doesn't have the heart to break it to the children.:
+		- "They are mere youths. They… their hope is still fragile. Not yet."
 - Rey is given her last target, and Leia's diplomatic mission is down to its last objective. The wild card. The woman who has no allies, no conscience, and no soul. And should be dead, but she's not.:
 	- Rey has a Force vision of Vergere standing in a gambling den, eyeing the decks of cards, and then Vergere starts talking, and Rey nearly craps herself realizing that Vergere is talking to *her* and can sense that she is there.:
 		- Rey reaches into the Force to try and see what Vergere is up to, where she will be.
-		- "One would think that having a way to see into the future would make you very wealthy, very powerful, very wise, but that isn't how it works. The Force takes as much as it gives, especially when you apply it the same way we do."
+		- "One would think that having a way to see into the future would make you wealthy, powerful, wise, but that isn't how it works. The Force takes as much as it gives, especially when you apply it the same way we do."
 		- Rey looks around for who the target is speaking to, then realizes it's her.
-		- "Yes. I can sense you. You are not very subtle, especially to someone like me."
-	- After Vergere	
+		- "Yes. I can sense you. You are not subtle, especially to someone like me."
+		- Rey and Vergere talk about how her [Vergere] memories are fragmented, and they suspect that Palpatine has been busy in the thirty years he's been dead, which scares Rey because she begins to understand that the return of Palpatine would probably destroy the New Republic.
+		- Vergere informs Rey that if she wants to be Vergere's Padawan, she needs to prove they have the same attitude towards the Force, so Rey will need to prove herself Rule of One style, something Rey later realizes from Leia implies that she has to attempt to kill Vergere with the Force.
+		- Vergere informs Rey that she will need a more experienced teacher in the Dark Side of the Force than Leia can provide, and that anyone in the New Republic will be willing to provide, and demonstrates that Rey is still vulnerable to the Force by striking her in the ribs *through* the Force vision.
 	- After her first conversation with Vergere, Rey is thoroughly freaked out. Scared. And not just because of BB-8.:
-		- Rey watches the holotape off of BB-8's memory banks again, and realizes that it isn't fake. Palpatine intends to return as a clone of his old body. And if Vergere is anything to go by, he is already *very* close to returning.
+		- Rey asks Leia what Vergere meant by the Rule of One, and Leia explains that all of this was before her time. Darth Krayt united the Sith Order under one purpose, a terrible era where Sith Masters expected their Padawans to kill the one they were closest to as a demonstration of their loyalty.
+		- Rey realizes she understands exactly what Vergere expects her to do, and Rey is just ruthless enough to really consider it. Which, of course, scares the devil out of her that she is agreeing with someone that Leia views as the devil incarnate.
+		- Rey watches the holotape off of BB-8's memory banks again, and realizes that it isn't fake. Palpatine intends to return as a clone of his old body. And if Vergere is anything to go by, he is already *extremely* close to returning.
 - Leia is obligated as Supreme Chancellor of the New Republic to turn in Rey for the attempted murder of a Jedi Master, so Rey goes to Conospe for trial.:
-	- Leia witnesses Rey nearly Force-choke a Jedi Master before the girl manages to come to her senses.:
+	- Leia witnesses Rey nearly Force-choke Vergere before the girl manages to come to her senses.:
 		- "You didn't even attempt to resist the dark side, Rey."
 		- "It offered me something I needed, I took."
 		- A beat passes.
 		- "Will he be okay?"
 		- "He will survive, but he will need time. The Force can do many thing, but Force-healing is not one of them."
-	- Rey broke her new master's rules, and she knows that, so she simply awaits punishment.
+	- Rey broke her new Master's rules, and she knows that, so she simply awaits punishment.
 	- Leia admits that she is out of her depth, and Rey needs a dedicated trainer, not a busy politician.
 	- Rey arrives on Conospe, is escorted to the New Republic Senate, and Leia activates her trap card.:
 		- Throughout, Leia has been taking cards out of Han's book in order to help build her New Republic. She's running out of options, and she knows the New Republic is completely missing the mark.
@@ -60,14 +69,14 @@
 		- Rey turns on the TV to figure out what these senators mean by the Naboo situation, only to find a short film labeled: "Amidala, Naboo, and Democracy."
 		- It's a documentary on the planet of Naboo, how it went from a monarchy under Queen Amidala to a Republic under Senator Amidala and now to a Democracy under… General Amidala?
 		- Rey recognizes it as propaganda immediately, quietly figuring out that Amidala is a militant dictator, but not understanding her motivations.
-	- Rey's story fades to black… until she receives a vision in the Force, not of the future, but of the present. Something is very wrong here. The Force never shows her the present.
+	- Rey's story fades to black… until she receives a vision in the Force, not of the future, but of the present. Something is wrong here. The Force never shows her the present.
 - Kylo, no mask yet, stoops to kneel at a deformed Snoke's feet.:
-	- "You must be careful, child of Ren. We are in the late stages of my master's plan now. You must ensure that General Hux suspects nothing."
+	- "You must be careful, Child of Ren. We are in the late stages of my Master's plan now. You must ensure that General Hux suspects nothing."
 	- "Hux is too focused on the project of his youth to suspect foul play."
 	- "Then you know your task well."
 	- "Master Snoke, I am ready."
 
 And the part that Rey dreads? She already knows exactly who bombed the Senate of Naboo.
-But she needs evidence, both because she needs to convince the Senate of her accusation due to the gravity of it...and because she doesn't want to tear her new home apart with civil war when she's been told for an entire film at this point that the New Republic is the one place in the entire galaxy where Force-sensitive children are respected as people.
-Because Rey knows those eyes. General Amidala isn't just demanding justice over the bombing of the Senate building. The building was empty. There are no dead. And she already dissolved the Senate. There is nothing to punish. A bomb destroyed brick and mortar, big whoop. No. General Amidala is intending to turn to the First Order, she has given up on the New Republic, and now she's making a statement. General Amidala bombed the  Naboo Senate because she has come to realize what many in the New Republic have come to realize. I think you know where this is going.
+She needs evidence, however, both because she needs to convince the Senate of her accusation due to the gravity of it… and because she doesn't want to tear her new home apart with civil war when she's been told for an entire film at this point that the New Republic is the one place in the entire galaxy where Force-sensitive children are respected as people.
+Because Rey knows those eyes. General Amidala isn't just demanding justice over the bombing of the Senate building. The building was empty. There are no dead. And she already dissolved the Senate. There's nothing to punish. A bomb destroyed brick and mortar, big whoop. No. General Amidala is intending to turn to the First Order, she has given up on the New Republic, and now she's making a statement. General Amidala bombed the  Naboo Senate because she has come to realize what many in the New Republic have come to realize. I think you know where this is going.
 
