@@ -1,4 +1,26 @@
 # Jason Grace Brain Dump
+"What are you going to do, Jason?" Octavian asked with the charm of a viper coaxing its prey into striking distance.
+"Turn you in." Jason said, flat and resolute.
+Jason had done it, beaten Octavian fair and square. Trial by combat, and he'd scored first blood with no help from the gods whatsover.
+Octavian wiped the blood off his lip where the sword's hilt had struck him.
+"By all means, child of Rome, let's walk into the light together. The thief of the First Cohort's eagle, and the assassin of Octavian, the Roman Senator. Treason for treason." Octavian smirked, offering his hands to Jason to be cuffed.
+Jason nearly did it, but Reyna stopped him.
+"Don't. This won't go the way you think it will. Octavian is powerful in the Senate."
+Jason stepped back, and sighed.
+"He is one senator. We have dozens." He argued, even though he knew she was right. Octavian was going to walk away from this. They had no choice.
+"Octavian's weapon of choice is the speech. In the Senate, he draws first blood nearly every day." Reyna confessed, staring at the beach sand.
+"So we let him walk away, then? Let him get away with stealing the First Cohort's eagle because it'll be my word against his?"
+Octavian looked at the strand of glass ten feet long behind him where that lightning bolt had struck the beach.
+"I knew you would be an eager martyr, Son of Jupiter." Octavian said in a deathly rasp. "Looking for a sword to fall on. A blade to put between yours."
+For just a second, lightning sparked in Jason's eyes, arced down to his fingertips and back again, before fizzling out as Jason regained control of his emotions.
+"It's called honor, Octavian. Not that you would know what that word even means." Jason said, voice calm and resolute.
+The three of them headed back towards the road, where Reyna's truck from her mom waited.
+She petted Argentum's snout affectionately. "Octavian thinks he's some kind of filha de lobo. But really… he's more like a filha de puta."
+She gave a small laugh.
+"The man wants to remove the gods from power, I want the same thing. If he wins, I secure myself a seat at the new table. If he loses, I gain soldiers, allegiance, and simply retreat back into the shadows." Nero said, tossing a grape into his mouth. "I win or lose a yacht on a bad day in Vegas. I'm not concerned."
+Jason eyed the man.
+"Wait, you mean Octavian?" Reyna sputtered in disbelief, Aurum wagging his puppy tail in unease.
+"No, I mean—" Nero said, then stopped himself. "Nevermind. Keep them separated, Jupiter says. And so I shall. If my plan succeeds, you will know exactly who I am referring to soon enough."
 Reyna approached from behind him.
 "You have served the Legion ten years now, Jason." She said amicably.
 Jason stiffened just a fraction.
