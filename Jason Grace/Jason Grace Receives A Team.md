@@ -16,4 +16,38 @@ A bunch of Probatios from the Fifth Cohort stood at attention, a boat behind the
 
 A forty-foot sail boat with masts and rigging all ready-to-go with harpoons and chains waiting to be used. A fine vessel, for a fine demigod and a fine quest.
 
+A blonde girl with pigtails whispered to a brown-haired boy next to her. "He's a Legionnaire of, like, four years. We're Probatios. He probably won't like us."
 
+"My name is Jason Grace, Legionnaire of the—" He said, only to be cut off.
+
+"We know who you are, dude." The brown-haired boy said. "We aren't stupid."
+
+The blonde kicked his foot, but he didn't seem to care. "Connor—"
+
+Jason sighed. "—Fifth Cohort. Right. You know who I am. It's a large cohort. I assumed you didn't know."
+
+Connor rolled his eyes at him. "You are the Son of Jupiter. Of course we know who you are. All anybody's told us is who you are."
+
+Centurion Dakota stepped forward in a rare display of… coherence.
+
+"Jason Grace, read the Stygian room."
+
+…
+
+"Wait. None of you know how to sail?" Jason asked, stunned into silence for a few seconds, then annoyed.
+
+They looked at each other.
+
+"It's a sailboat." A black-haired boy said. "You control the winds. We thought you could… well… push it."
+
+"Push it?" Jason whispered in pure disbelief.
+
+…
+
+"Well at least you know how to fight, yes?" He asked, studying them carefully.
+
+They looked at each other nervously, then all said it at the same time.
+
+"Yeah. Of course. We definitely know how to fight. We're, like, the best fighters of the Fifth Cohort."
+
+Centurion Dakota seemed… concerned, and he felt in his gut why, but ignored it.
