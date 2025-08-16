@@ -1,4 +1,5 @@
 # Jason Grace Brain Dump
+
 "What are you going to do, Jason?" Octavian asked with the charm of a viper coaxing its prey into striking distance.
 "Turn you in." Jason said, flat and resolute.
 Jason had done it, beaten Octavian fair and square. Trial by combat, and he'd scored first blood with no help from the gods whatsover.
@@ -58,3 +59,43 @@ The pressure should've burst Jason's lungs, but Jason wasn't fazed by it.
 Krios was scared.
 Letting his palms connect with a sound like cracking thunder, Jason allowed the winds to reach 300 mph on either side of him. Krios had to rely on his titan power just to remain standing.
 "Do you see it, Krios? I'm a living, breathing hurricane. When I get angry, levees break. And now, I'm going to show you why hurricanes always strike in the West. Because I am livid, and not even I know how strong I really am when I really, truly try…to kill someone."
+
+Gwen gave him a *did you just blow in from Stupid Town?* look that was all too familiar.
+"How on Earth, might I ask, did you discover that the god of war lost a duel?"
+"I don't know. The… winds… told me."
+
+"I sense the presence of Mars, faintly." Gwen said quietly.
+"No," Jason corrected on instinct, hesitated for a moment.
+"No?" Gwen paused, looking at him with appraisal.
+"No. Not Mars. Ares."
+
+Dakota approached on the horizon as Jason and Gwen tied down the last board of the boat into place.
+"Let's call it… the Pax." Jason suggested.
+"I think we just found out where Centurion Dakota went." Gwen whispered.
+"Jason Grace, Legionnaire of the Fifth Cohort, I am here on orders from Octavian to arrest you for the theft of the First Cohort's Eagle." Dakota said.
+It was easy to assume that Centurion Dakota, who consistently found a way to dig the Fifth Cohort a new low with his disrespect and careless attitude and love of partying, wasn't a threat. But Dakota was still Centurion of the Fifth Cohort. Jason's Centurion. Dakota was still at the mercy of the Senate, and still had a duty to arrest those in his Cohort that broke Legion laws. Even if the Senate was wrong.
+Jason hesitated, kept his hand off his sword. He was a negotiator, he was a peacemaker, Jason did not fight people if he did not have to. He reined himself in. Whining and complaining about injustice would only cost him time.
+"Centurion Dakota, what would you do if I were to go with you?" Jason asked, fighting to keep his voice steady and calm and constrained.
+*Don't get angry. Don't get upset. Not here. People could get hurt. Especially with that Typhoon.*
+"I would escort you to Octavian directly. He would decide whether to take you to the Senate or settle the matter with you diplomatically." Dakota said. This was duty. Dakota did not want to do this, and they both knew it. Dakota was a good man deep down. A good man at the mercy of what Jason was starting to suspect was a rotting Senate and a rotting Rome.
+*Octavian. Of course. You will be betrayed by one who calls you a friend. It never specified that the man actually was.*
+"And what if I took Octavian to you and settled the matter here and now? Praetor Gwen stands right there. You stand here as well. Two witnesses. If Octavian agreed to drop the charges and the First Cohort's Eagle was recovered, would the matter be resolved?" Jason asked.
+Gwen and him waited with baited breath. Dakota considered for a moment.
+"Yes, I believe that would satisfy the matter. But only if you succeed in bringing Octavian and the First Cohort's Eagle here promptly."
+He and Gwen both sighed with relief.
+"Thank you for your generosity, Centurion." Gwen breathed.
+"If this is a trick to board that vessel and flee arrest, though, Jason Grace, I will be honor-bound to bring you in. By any means necessary. And escort you to the Senate for execution." Dakota warned.
+A bead of sweat rolled down Jason's neck as he eyed the sea, every muscle in his body rigid from stress.
+*Am I really sure about this? My gut could be my execution.* He thought.
+He clenched his fists and boarded the boat, feeling it slosh beneath him. Children of Jupiter were never to test Neptune's patience. They had their domain, Neptune had his. He could be signing his own death warrant, literally.
+*I do this because it must be done.* Jason repeated the mantra his Praetor had given him, that the Wolf House had drilled into him, because it was the only way he could convince himself to board a boat and head out into a Typhoon with lightning to potentially fight a battle deep in enemy territory. The voice of the winds whispered in his ear as he pushed off, eyeing the icy water of the Pacific that splashed into the Pax, feeling a chunk of ice smack his foot.
+*If I told you who you were up against, Jason Grace, you would beg me to freeze you.*
+"I am aware of the stakes, Centurion Dakota." Jason breathed, as he felt it in his gut that he wasn't the only one running out of time. "Even more than you are."
+Above, Jason felt something *powerful* stir. He sensed it in his gut, in his instincts, in the blow of the wind on his skin. A huge commercial airliner.
+As if on auto-pilot, his mouth moved before his brain had time to process what he was saying.
+"American one-one-eight, Boeing seven-six-seven, two-two-three Echo Romeo… flight level three-five-zero, Lima-Alpha-X-Ray to Juliet-Foxtrot-Kilo… heading zero-seven-six, four hundred knots…"
+Jason blinked, mouth opening and closing momentarily.
+"Did I just…?" He whispered to himself. It had felt as natural as breathing. Inside the plane though, was something that made the hairs on the back of his neck stand up again. Lightning. Lots of it. The most powerful source of lightning he'd ever felt in all his years as a Legionnaire. He considered trying to summon it, then corrected himself.
+*It's in a commercial airliner, full of people. Even trying would kill everyone aboard.*
+So he was left to finish his sentence from before with a rare smile. Lupa had said that something had gone missing, that what rose in the East settled in the West. He'd suspected that his father's Master Bolt had been stolen days before the First Cohort's Eagle had gone missing. He now knew he'd been right.
+"…and one hell of a carry-on to declare in customs when it arrives."

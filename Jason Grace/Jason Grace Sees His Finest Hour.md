@@ -8,6 +8,30 @@ The Son of Jupiter stopped questioning the statement.
 
 *We are going to die here.*
 
+In the roof of the cave stood a horde of nightmares. One saw Jason grinning and striking the final blow on that boat two years ago, killing Octavian in cold blood. Octavian smiled up from beneath him, looking at the blade puncturing his gut.
+
+"Oh, Jason, I always knew you had it in you. You're just like the rest of us, you know? You are willing to steal anything, kill anyone, to get what you want. You stole the First Cohort's Eagle and gave it to the Fifth to try and raise them up."
+
+A shiver ran up Jason's spine as the spirit Jason looked down at Octavian and smiled.
+
+"Yes, yes I am."
+
+"No, no I'm not!" Jason insisted, but he realized Reyna was staring at something else.
+
+Framed on her side was a vision of two little girls in a small home in Puerto Rico with white walls, one standing in front of a mania-looking man, the other laying on the ground unconscious. The little girl cursed in Portuguese, then stared terrified at the towering man. "See, Reyna? This is what happens when you hold back. When you get shy. People you care about get hurt. Like right now. First, I'm going to kill you, then I'm going to kill her. And when push comes to shove, Reyna, you are going to do nothing."
+
+"Eu fiz TUDO! Não minta para mim!" Reyna shouted.
+
+Jason could see it, though. She was scared, she was hesitating. She was mentally curling into a ball and turning into that scared little girl from San Juan who just wanted someone to tell her everything was going to be okay even if she knew it wasn't.
+
+Before he could say anything to her, though, another vision called out to him. Connor, from the Sea of Monsters, staring at him through not-yet-blind eyes. "Jason! Why didn't you hold back? Why didn't you control yourself? You cost me everything!"
+
+"I'm… I'm sorry, Connor. It was an impossible choice. I had to summon lightning."
+
+Jason had began to cry. Reyna held his shoulder, but she was in worse shape than he was. She knew the pattern. He didn't. They ground you down emotionally and got you so helpless that you wanted them to kill you. Reyna was already falling, and she knew that. Jason found staying in place easy, and she couldn't understand why.
+
+She'd spent her entire life running. From San Juan. From Circe's Island. From Blackbeard. From the Wolf House. From Camp Jupiter. And now, it seemed only fitting that she was going to die here and now, in this cave, surrounded by nightmares, because she had finally run out of places to run to.
+
 Reyna looked at him, scared and confused. Her hair was a total mess, and neither of them cared. She knew, he knew, and this was it.
 
 "It's pronounced Ra-mee-rez Ah-ray-ah-no." She said.

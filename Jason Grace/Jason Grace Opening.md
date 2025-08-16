@@ -64,7 +64,7 @@ Lupa's lips did not move, but Jason understood every word. He had spent years le
 
 He didn't like the reminder that he seemed to be the only one constantly torn between two sides of himself.
 
-*What happens to one is always mirrored in the other. Something important has gone missing on the other side, and it is affecting Rome. I fear the Legion may lose something of similar importance in the coming days.*
+*What happens to one is always mirrored in the other. Something important has gone missing on the other side, and it is affecting Rome. The Legion may lose something of similar importance in the coming days.*
 
 The Son of Jupiter did not like where this was going. Something important, important enough for Lupa to show up personally, had gone missing on the other side, and now Lupa suspected something similar would happen to Rome? His gut was telling him he knew exactly what had vanished, but he wouldn't point fingers. Not without evidence. Not without proof.
 
