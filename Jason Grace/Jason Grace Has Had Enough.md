@@ -1,6 +1,6 @@
 Jason was done. Done with this quest, done with the Senate, done with the Trojan Sea Monster, done with the prophecy, and done with the legacy of Neptune that had taken half his team for leverage and then kept them after Jason had made good on his side of the bargain.
 
-The ship rocked back and forth beneath his boots as his Probatio seamen and seawomen—left and right—sharpened their swords like he'd taught them. He hadn't been given an A-team. He hadn't even been given a B-team. He'd been given a set of newbies from the Fifth Cohort who couldn't even sail… for a quest to defeat a Trojan *Sea* Monster. A set of novices who couldn't even fight… to battle an army.
+The ship rocked back and forth beneath his boots as his Probatio seamen and seawomen—left and right—sharpened their swords like he'd taught them. He hadn't been given an A-team. He hadn't even been given a B-team. He'd been given a set of newbies from the Fifth Cohort who couldn't even sail… for a quest to defeat a Trojan _Sea_ Monster. A set of novices who couldn't even fight… to battle an army.
 
 So Jason had acted, been wrong, failed…
 
@@ -28,21 +28,21 @@ He was intrigued.
 
 Jason mouthed to his team.
 
-*Now.*
+_Now._
 
 "Prepare to be boarded!"
 
-Six harpoons embedded themselves permanently in the opposing ship's hull. 
+Six harpoons embedded themselves permanently in the opposing ship's hull.
 
-Thomas was first, throwing his whole weight into it, back locked as his feet pushed forward, straining every muscle in his arms with everything he had. 
+Thomas was first, throwing his whole weight into it, back locked as his feet pushed forward, straining every muscle in his arms with everything he had.
 
-Sarah, not to be out-done, took the end she'd just attached to the rigging and turned the huge wheel, rapidly winding the chain around it and closing the distance between the grip and the harpoon tip. 
+Sarah, not to be out-done, took the end she'd just attached to the rigging and turned the huge wheel, rapidly winding the chain around it and closing the distance between the grip and the harpoon tip.
 
-Connor pulled as hard as he could, but in the end, he and Patrick ended up helping each other pull the chains in a joint grip. 
+Connor pulled as hard as he could, but in the end, he and Patrick ended up helping each other pull the chains in a joint grip.
 
 Michael and Lily, children of Vulcan to a fault, had woven their ends to the ship's anchor and simply dropped it into the sea below.
 
-Six Probatios pulled on the harpoons, and the two ships collided *hard*, the gap closing like a huge clamp. They were in this together, for better and for worse.
+Six Probatios pulled on the harpoons, and the two ships collided _hard_, the gap closing like a huge clamp. They were in this together, for better and for worse.
 
 The legacy immediately stumbled backward, but his men were tough, arming themselves with swords as they dealt with this new threat.
 
@@ -52,7 +52,7 @@ Connor looked back at him in shock. "You… aren't a Centurion. You don't have t
 
 Jason stared right back at him.
 
-"Centurion Dakota is in chains. As such, as the oldest Legionnaire currently present, I *am* a Centurion, Legionnaire Connor."
+"Centurion Dakota is in chains. As such, as the oldest Legionnaire currently present, I _am_ a Centurion, Legionnaire Connor."
 
 Connor smiled.
 
@@ -96,7 +96,7 @@ The Son of Jupiter cracked his knuckles.
 
 "Or," Jason said, feeling electricity waltz up and down his sword before he reigned it in again, "I kill you where you stand."
 
-The sea churned beneath them, but Jason steadied his nerves. This was *not* the team to worry about being on Neptune's bad side. He had a job to do.
+The sea churned beneath them, but Jason steadied his nerves. This was _not_ the team to worry about being on Neptune's bad side. He had a job to do.
 
 "Got it." Aaron whispered. "I'll get right on that, Jason Grace, Sir."
 
@@ -108,13 +108,13 @@ And Jason pointed his gladius at his right ear, then his left.
 
 Something wasn't right about this, though. He had been sent here for a purpose.
 
-*The Sea Monster of Troy shall be slain by the pride of Juno.* He remembered, and suddenly found himself hesitating again.
+_The Sea Monster of Troy shall be slain by the pride of Juno._ He remembered, and suddenly found himself hesitating again.
 
-*Yeah, but where is it?* He thought.
+_Yeah, but where is it?_ He thought.
 
 And then an explosion rattled the vessel so violently that Jason dropped his own sword.
 
-*Well,* Jason thought, *schist.*
+_Well,_ Jason thought, _schist._
 
 A massive tentacle ripped open the roof of the hallway, and Jason found himself face to face with a squid the size of the Senate building. Water drenched them all as Dakota fought to crawl out of the brig while there was still a brig to crawl out of.
 
@@ -130,7 +130,7 @@ Jason remembered the way he'd promised Neptune on his journey to duel Octavian t
 
 For a second, he thought his apology had worked. The Kraken seemed to be hesitating. Then he recognized the look on its face. One he had received many times from Octavian… and Praetor Samuel.
 
-*Uh… did this guy just blow in from Stupid Town?*
+_Uh… did this guy just blow in from Stupid Town?_
 
 At what was left of the bridge, Aaron had already fled to the radio.
 
@@ -159,7 +159,7 @@ There was thirty feet of distance.
 
 Jason was never going to make it. Not when Dakota was already injured, there were empty crates everywhere, and the ship was already on the verge of capsizing. Twenty degrees of tilt, and only getting worse. He needed to be in two places at once. Or, more accurately, six. The Kraken had just rammed Michael against the deck and the boy wasn't getting back up.
 
-*The clock is ticking, Jason.* He thought. *If you're going to do something, now would be the time.*
+_The clock is ticking, Jason._ He thought. _If you're going to do something, now would be the time._
 
 He was terrified. Not of dying, but of losing control, letting the winds within him fully run wild, letting the lightning go free. The collateral damage would kill his crew long before it left a dent in the Kraken.
 
@@ -169,7 +169,7 @@ Her grip failed. Sarah fell.
 
 "No." He grunted. "I'm done being afraid. People are going to die!"
 
-*I need a harpoon…* He thought, searching around, and saw a few in a nearby barrel.
+_I need a harpoon…_ He thought, searching around, and saw a few in a nearby barrel.
 
 He dove for it, but the beast knocked it out of his reach with a tentacle and the barrel toppled into the sea.
 
@@ -177,7 +177,7 @@ His muscles ached, his vision blurred, and his ears rung from the explosions of 
 
 He felt the hum of the sea, heard the waves rock, but shut it all out and listened more closely. He listened to the sky above.
 
-*The weather report.* He realized. *Pacific Ocean. Sea of Monsters. Typhoon.*
+_The weather report._ He realized. _Pacific Ocean. Sea of Monsters. Typhoon._
 
 Jason pulled on every volt he could get his hands on, and made one giant harpoon for one massive Kraken. The explosion rocked the deck as light bored into his eyelids. The proximity should've deafened him from the thunder, but it didn't. Instead, he heard a massive splash, and dared to open his eyes.
 
@@ -201,7 +201,7 @@ Jason gathered his crew, all of them, together at the edge of the vessel as two 
 
 Their ship was sinking. The lifeboats were crippled beyond recognition. Even if he used all his strength to use the winds to push the torn sails back to port, the strain would kill him long before they reached any shore, assuming the ship stayed above water long enough to even sail that far.
 
-*Pride of Juno.* He remembered. His crew stared at him in anticipation.
+_Pride of Juno._ He remembered. His crew stared at him in anticipation.
 
 "What are we… going to do, Centurion?" Thomas asked.
 
@@ -241,7 +241,7 @@ The ship lurched as a chain of boards breaking under the strain of the load form
 
 45. The ship broke beneath them, tearing in half as Jason gave what every neuron in his head assured him was his last order, and his gut assured him would be his first.
 
-"Now!" He boomed, and the thirteen jumped as Jason willed the winds with seven words. *We will not hit the water.*
+"Now!" He boomed, and the thirteen jumped as Jason willed the winds with seven words. _We will not hit the water._
 
 The wind held them in place as the ship fell away from them and vanished into the sea with a huge splash. It slowed their fall to an agonizing crawl as gravity fought to bring them down.
 
